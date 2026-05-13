@@ -7,6 +7,134 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 02:14
+---
+
+## Dirty_Kids — post 389415
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389415_1778712257.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389414
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389414_1778712257.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A23
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389413
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389413_1778712258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389412
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389412_1778712258.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زینب موشک دوست🤣🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389411
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389411_1778712259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ انیمیشن‌های لگویی وارد فاز جدیدی شد!
+
+لگوی شاه عالیه فقط! 👏🤩
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389410
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389410_1778712261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درسته مکرون جلوی چشم دنیا چک خورد،
+ولی مدال طلای واکنش به لو رفتن چت عاشقانه،
+میرسه به زن ایرانی‌ای که وسط پرواز از خوابِ شوهرش استفاده کرد، با انگشتش گوشی رو باز کرد،
+با دیدن پیامای عاشقانه،
+چنان قشقرقی بپاکرد که هواپیما فرود اضطراری کرد تو هند 😭✈️
+بدون چمدون پیاده‌شون کردن🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389409
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389409_1778712261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانی بودن یعنی traumatized شدن با هر چیز ساده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389407
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دوست دختر جدید پوبون (رپر) از روی یه پُل تو مکزیک افتاده پایین و گویا کمر و گردنش شکسته؛
+
+پوبون هم استوریش کرده و از مردم خواسته که پول دونیت کنن تا هزینه عملش دربیاد...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من دیگه اگه بگن قراره یه ابر بزرگ بیاد رو آسمون ایران ازش کیر بباره تعجب نمیکنم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 00:53
 ---
 
