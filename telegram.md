@@ -7,6 +7,31 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 23:20
+---
+
+## Dirty_Kids — post 389401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمه جنده ام، گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی به “بله” می گید سوپر اپلیکیشن، حس بقالی رو دارم که رو تابلوش زده هایپر مارکت!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 22:33
 ---
 
