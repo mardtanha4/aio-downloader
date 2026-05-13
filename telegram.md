@@ -7,6 +7,22 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 03:13
+---
+
+## exoupdate_news — post 60350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] SEHUN BUBBLE UPDATE 🐥🫧
+
+03:42 KST
+“have sweet dreams”
+
+*@exoljjang_ina*
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 02:14
 ---
 
