@@ -7,6 +7,207 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 22:33
+---
+
+## exoupdate_news — post 60345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260513] lay_studio SNS UPDATE
+
+"Berdedikasi pada kreasi selama lebih dari satu dekade,
+berakar pada profesionalisme,
+membangun kepercayaan diri untuk bersinar di panggung global. Dengan aspirasi awal sebagai fondasinya,
+perjalanan ini meluas menuju cakrawala yang jauh. Bos @layzhang terus naik ke atas, memancarkan cahayanya sendiri."
+
+https://www.instagram.com/p/DYRe7SGG55N/?igsh=a211b21sbmM1Y2Rq
+
+https://x.com/i/status/2054487210221879380
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260513] lay_studio SNS UPDATE
+
+"Berdedikasi pada kreasi selama lebih dari satu dekade,
+berakar pada profesionalisme,
+membangun kepercayaan diri untuk bersinar di panggung global. Dengan aspirasi awal sebagai fondasinya,
+perjalanan ini meluas menuju cakrawala yang jauh. Bos @layzhang terus naik ke atas, memancarkan cahayanya sendiri."
+
+https://www.instagram.com/p/DYRe7SGG55N/?igsh=a211b21sbmM1Y2Rq
+
+https://x.com/i/status/2054487210221879380
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60336
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60336_1778699029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260513] EXO OFFICIAL SNS UPDATE #CHANYEOL
+
+"Chanyeol menikmati piknik sendirian di Sungai Han [Chanyeol Theater: Edisi Piknik Sungai Han]"
+
+youtube.com/watch?v=Taa-Zl…
+
+https://x.com/i/status/2054494786770641322
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260513] JEMPER UPDATE #LAY
+
+"JEMPER bergandengan tangan dengan superstar global dan duta merek pertamanya, @.layzhang, berpemandu pada keahlian sebagai aspirasi asli, meneruskan estetika Timur. Biarkan keindahan abadi emas yang tahan uji waktu bersinar di seluruh dunia."
+
+@.LayZhangBase
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260513] lay_studio Xiahongshu UPDATE
+
+
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389399
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389399_1778699030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امانوئل تو زن داری؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389398
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفته بودیم ماسال. به صاحب‌ ویلا گفتم اینجا محلیا چه‌جوری‌ند؟ به حجاب گیرن یا زنا راحت بتابن؟
+گفت: زنا هر جور دوست دارن بپوشن، اما مردا شلوارک نپوشن، اهالی حساسن به شلوارک:))))))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389397
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389397_1778699031.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بلومبرگ: صادرات نفت ایران از جزیره خارک برای اولین بار از زمان شروع جنگ متوقف شده و تصاویر ماهواره‌ای نشان میده که مخازن ذخیره‌سازی نفت تقریباً به ظرفیت کامل خود رسیدن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389396
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389396_1778699031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صلواتی خونخوار حکم اعدام ‎#محمد_عباسی رو داد و جمهوری اسلامی امروز مخفیانه طناب دار رو دور گردنش انداخت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389395
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389395_1778699032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قمصری در کاخ الیزه در واکنش به رابطه «گلشیفته و مکرون»
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389394
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389394_1778699032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما غلط کردی با صاحابت.
+از طرف مردم گه نخور.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23236
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23236_1778699032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#HEARTS2HEARTS has been confirmed to appear at the Hanyang University Festival - Day 3
+
+🔹️ Hanyang (RACHIOS): Splendor
+📆 May 29, 2026
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260513] #YUHA WEVERSE UPDATE
+
+🌱
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23219
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260513] #A_NA WEVERSE UPDATE
+
+I feel like it
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23212
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260513] #JIWOO WEVERSE UPDATE
+
+🍃
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 21:29
 ---
 
@@ -1702,8 +1903,6 @@ https://bet120x.com/fa/?btag=971470
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
