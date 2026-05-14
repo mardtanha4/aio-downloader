@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 02:23
+---
+
+## Dirty_Kids — post 389479
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389479_1778799205.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389478
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389478_1778799206.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A24
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389477
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389477_1778799206.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قضیه السیسی اگه نمیدونی این ویدیو کمکت میکنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389475
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389475_1778799207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیفونیا با کانفیگ پولی در حال خوندن پستای اندرویدیا که با وپن شیر 🌞 وصل شدن:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389474
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389474_1778799207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️خبرنگار : امیرعلی چرا اومدی تجمع؟
+🧑امیرعلی : به عشق رهبر
+
+🎙️خبرنگار : امیرعلی، مامان و بابات مجبورت کردن که بیای تجمعات؟
+
+🧑امیرعلی : آره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389473
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389473_1778799209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کصمادرتون…
+نسلتون رو ✌🏽 بار گائیدم…
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389472
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389472_1778799209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو خیابون حل اشکال ریاضی میزارن بعد رتبه یک کنکور رو اعدام میکنن.
+اینجا، ایران جان..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تو آسانسور از دختره پرسیدم کدوم طبقه میری ؟
+گفت : فرقی نمیکنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389470
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389470_1778799209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ملانیا واقعا خوشتیپه
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 01:23
 ---
 
