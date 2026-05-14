@@ -7,6 +7,43 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 05:03
+---
+
+## exoupdate_news — post 60351
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60351_1778722419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260513] lay_studio SNS UPDATE
+
+"Seri vlog mini Cannes dari bos @layzhang 📷
+Di Cannes, tempat cahaya dan bayangan berpadu, kompleksitas dikesampingkan demi ekspresi murni.
+Esensi artistiknya tidak hanya terletak pada rasa tanggung jawabnya untuk meneruskan warisan budaya, tetapi juga pada kemudahan yang tanpa usaha ini.
+
+#LAY #LayZhang "
+
+https://www.instagram.com/reel/DYRzXaIg52x/?igsh=MXNuaWYyb3V3Znh0eg==
+
+https://x.com/i/status/2054532992958439818
+*@exoljjang_ina*
+</div>
+
+## Hearts2HeartsUpdateSM — post 23237
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23237_1778722423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260513] #YUHA WEVERSE UPDATE
+
+🌱
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 03:13
 ---
 
