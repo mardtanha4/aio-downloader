@@ -7,6 +7,280 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 14:12
+---
+
+## exoupdate_news — post 60362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] SEHUN BUBBLE UPDATE 🐥🫧 03:42 KST “have sweet dreams” *@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60361
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60361_1778755347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] #KYUNGSOO
+
+tvN Friday Anchor Variety <Kong Kong Series (New)>
+
+Tayang pukul 20.40, Tayang Perdana Juni, 6 Episode
+
+Kembalinya serial dokumenter komedi nyata yang terpercaya <Kong Kong>! Kali ini, di sebuah peternakan! Petualangan trio sahabat sejati Lee Kwang-soo × Kim Woo-bin × Do Kyung-soo di Pulau Jeju.
+
+@.Doh_KyungSooSoo
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389430
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389430_1778755348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی از عمو «مارک‌روبیو» حرف می‌زنیم، در واقع داریم از این تفاوت‌هاش با سایر موجودات عالم حرف می‌زنیم،
+
+شما ببین تنها کسیه که این‌طور کنجکاوانه و با شوق و ذوق به سقف تزئینات تالار بزرگ خلق کشور قرمدنگ چین نگاه می‌کنه و اشاره می‌کنه بقیه هم ببینن،
+
+چین قرمساقی که در سال ۲۰۲۰ دو بار عمو مارک روبیو رو که در اون زمان سناتور جمهوری‌خواه ایالت فلوریدا بود رو تحریم کرد، [ممنوعیت ورود خودش و خانواده‌اش به چین و هنگ‌کنگ و مسدود کردن دارایی‌های احتمالی در چین که البته عمو هیچ دارایی در چین نداشت]
+
+سر چی؟
+چون عموی آگاه و اندیشمندم، این محمدعلی‌فروغی زمانه‌ی آمریکایی‌ها، از چین قرمساق در قضیه‌ی سین‌کیانگ و اویغورها و هنگ‌کنگ‌انتقاد شدید کرده بود.
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389428
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389428_1778755349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و در این میان ایلان پیش‌فعال
+
+روی پله‌ها یک دور هم دور خودش چرخید و از اطراف فیلم گرفت!! :))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389427
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389427_1778755350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+R24
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389426
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389426_1778755351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389425
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389425_1778755351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ آمریکا و چین موقع دست دادن؛
+
+ترامپ به سمت شی رفت، دست دادن و بعد جفت طرف سعی داشتن دست‌ِ طرف مقابل رو به سمت خودشون بِکشن که این صحنه خلق شد:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389424
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389424_1778755353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لاشیا فهمیدن ما عرقو با دوغ میخوریم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389423
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389423_1778755353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس پروفایل معلمای ادبیات
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] WEVERSE REPLY
+
+🩵: Yuna always wants to win, but never actually wins.
+🌻: What made you feel that way?
+
+🩵: You’re seriously super cute too.
+🌻: These days I really want to become even cuter.
+
+───────
+
+🩵: Yuna selalu pengen menang, tapi nggak pernah benar-benar menang.
+🌻: Emang dari mana kamu bisa ngerasa gitu?
+
+🩵: Kamu juga lucunya nggak main-main.
+🌻: Akhir-akhir ini aku pengen jadi makin imut banget.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] WEVERSE REPLY
+
+🍓: Photo by the maknae~
+😊: Yes.
+🍓: Ah!!!!!!!!!!!!!!!!!!!!!
+😊: Hehe, so it was a photo taken by me.
+🍓: Cutie.
+😊: 😘🍓
+
+───────
+
+🍓: Foto by maknae~
+😊: Iya.
+🍓: Ah!!!!!!!!!!!!!!!!!!!!!
+😊: Hehe, jadi itu foto yang aku ambilin ya.
+🍓: Lucuu.
+😊: 😘🍓
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23256
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #JUUN WEVERSE UPDATE Jueun’s Q&A time 🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #JUUN WEVERSE UPDATE Jueun’s Q&A time 🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #JIWOO WEVERSE UPDATE
+
+Do you want to eat together?
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #JUUN WEVERSE UPDATE Jueun’s Q&A time 🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23244
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23244_1778755354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#HEARTS2HEARTS will attend the K-EXPO INKIGAYO in Paris 🇫🇷
+
+📅 June 17, 2026
+📍 Palais des Congrès de Paris, France.
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23243
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23243_1778755355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #JUUN WEVERSE UPDATE
+
+Jueun’s Q&A time
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23242
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23242_1778755356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #HEARTS2HEARTS SNS UPDATE
+
+Trying to walk🚶..
+
+#Hearts2Hearts #하츠투하츠 #H2H #A_NA #에이나
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 11:50
 ---
 
