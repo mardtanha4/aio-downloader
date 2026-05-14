@@ -7,6 +7,191 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 18:35
+---
+
+## exoupdate_news — post 60364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] lay_studio SNS UPDATE
+
+" Bos @layzhang Seri Vlog Mini Cannes 📷
+Setelah dia bertemu seekor angsa besar di tepi pantai, cerita pun terungkap! "
+
+#LAY #LayZhang
+
+https://www.instagram.com/reel/DYUjozrgcWE/?igsh=Z2Fnd2NzaTMxN2dl
+
+https://x.com/i/status/2054922386500427880
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60363
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60363_1778771123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] SEHUN BUBBLE UPDATE 🐥🫧 “Nikmati makan malam yang lezat” “Aku akan berolahraga dan kemudian makan malam bersama keluargaku setelahnya” engtrans: xunhuas *@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389445
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389445_1778771124.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎶 موزیک - کتلت تنگسیری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389444
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389444_1778771125.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موزیک ویدیو کتلت تنگسیری
+
+ارزش دانلود بالا، انرژی‌بخش و شاد
+
+حجمش رو تا جایی‌که میشد آوردم پایین
+موزیک خالیشم براتون پایین گذاشتم که حجمش خیلی کمتره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389443
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389443_1778771125.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جو خونه مکرون
+بعد از قضیه گلشیفته
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389442
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389442_1778771127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصاحبه‌ی بسیار مهمی از عموی خوبم اسکات بسنت وزیر خزانه‌داری آمریکا با شبکه‌ی CNBC که گزارش مختصری از وضعیت روافض هزارپدر می‌ده:
+
+
+«چیزی که ما شاهدش هستیم اینه که تأسیسات بارگیری نفت روافض که اصلی‌ترین تأسیسات بارگیری نفت‌شونه، مجموعه‌ایه به نام جزیره خارک.
+
+ما رصد کردیم و دیدیم که در سه روز گذشته هیچ بارگیری نفتی صورت نگرفته. ما معتقدیم که مخازن ذخیره‌ی نفت رژیم قحبه‌زاده پر شده.
+
+هیچ کشتی‌ای‌ از اونجا خارج نمی‌شه و هیچ کشتی‌‌ای وارد نمی‌شه، بنابراین رژیم پدرخراب رافضی نمی‌تونه نفتش رو روی آب [در تانکرها] ذخیره کنه.
+بنابراین رژیم هزارپدر شروع به متوقف کردن تولید نفت خواهد کرد.
+ما از طریق تصاویر ماهواره‌ای می‌بینیم که این اتفاق در حال رخ دادنه.
+
+اما مهم‌تر از همه‌ی این حرف‌ها اینه که این یک رژیم شیطانی مادرهزارتختخوابیه.
+روافض جنایتکار تا اینجای سال جاری ۳۰ یا ۴۰ هزار نفر رو کشتن و اعدام کردن ‌ که خیلی از این معترضان مسالمت‌جو بودن‌. پس، با چنین رژیم مادرخر...
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389441
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389441_1778771129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شی جین‌پینگ، رئیس‌جمهور چین در دیدار با ترامپ رئیس‌جمهور آمريکا:
+
+دو کشور ما باید شریک باشند، نه رقیب. مردم چین و ایالات متحده هر دو ملت‌های بزرگی هستند. تحقق احیای بزرگی ملت چین و عظمت دوباره آمریکا می‌تواند همزمان پیش برود. ما می‌توانیم به موفقیت یکدیگر کمک کنیم و رفاه کل جهان را ارتقا دهیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ تو چین یه جور داره رفتار میکنه که انگار اون میزبانه:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389436
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389436_1778771131.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه سمی بود دیدم 😂🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23270
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23270_1778771132.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] WEVERSE REPLY
+
+🧁: Do you all prefer blonde hair or the grapefruit-colored hair right now?
+🧁: Seems like everyone likes blonde hairㅋㅋ
+I also think there’s no color that can beat blonde.
+🧁: But!! Recently I took looots of really pretty photos with the grapefruit color though.
+You might change your mind after seeing them!!
+
+───────
+
+🧁: Kalian lebih suka rambut pirang atau warna grapefruit yang sekarang?
+🧁: Kayaknya semua orang suka rambut pirang yaㅋㅋ
+Aku juga sebenarnya mikir nggak ada warna yang bisa ngalahin pirang.
+🧁: Tapi!! Akhir-akhir ini aku ngambil banyaaak banget foto cantik dengan warna grapefruit ini.
+Kalian mungkin bisa berubah pikiran setelah lihat nanti!!
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #STELLA WEVERSE UPDATE
+
+When I was blonde 💛
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23262
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #YE_ON MEMBERSHIP UPDATE
+
+1. Ye-on Hermit Crab
+2, 3. Meow? 🐱 (just the vibe I feel matches the pics...?)
+3. I love milk tea
+4. Mozzarella cheese and strawberry jam i had at the restaurant 🍓
+
+⚠️ DON’T REPOST ⚠️
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 15:49
 ---
 
