@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 11:50
+---
+
+## exoupdate_news — post 60353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] lay_studio SNS UPDATE
+
+"Sinar matahari membeku dalam bingkai, angin laut membuka jalan.
+Dari panggung ke layar perak global, @layzhang tetap setia pada kesempurnaannya.
+Berakar pada warisan Timur, ia menjelajahi dunia dengan anggun."
+
+#LAY #LayZhang
+
+https://www.instagram.com/p/DYTtI6ulHL4/?igsh=ZWUzYzQ1YmV5OG41
+
+https://x.com/i/status/2054799798436552943
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جدی پیک می تر از این جنده های حجابی تو دانشگاه وجود نداره، یارو سال اول کارشناسی کامپیوتره بعد استیکر زده رو لپ تاپش LEAVE ME ALONE IM CODING، بیا برو کیرم تو کدت شد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389421
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389421_1778746818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پلیس شریف دانمارک vs طرفداران تروریسم جهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389420
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389420_1778746819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مانوک خدابخشیان: "فعالیتی که برای براندازی پهلوی سوم وجود داره، برای براندازی رژیم وجود نداره. همه تلاش می‌کنند که این شاهزاده پهلوی به ایران برنگرده‌."
+روحت شاد عمومانوک
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389416
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389416_1778746819.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#تکمیلی
+یه پسره حدود 2 میلیون دلار هزینه کرده تا آلیس رزنبلوم | Alice Rosenblum دختر 19 ساله آمریکایی که مدل اونلی‌فنزه رو از نزدیک ببینه؛
+
+پسره تا رسید بهش گفت چاق‌تر از عکساتی و من روزی 3 بار باهات خودارضایی می‌کنم...
+
+تهشم فقط به دختره دست داد که آلیس چندشش شد و گفت اگه میشه بندازینش بیرون چون داره من رو می‌ترسونه!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 09:04
 ---
 
