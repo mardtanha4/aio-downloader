@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 09:04
+---
+
+## exoupdate_news — post 60352
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60352_1778736862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260514] CHEN BUBBLE UPDATE 🦖🫧
+
+"📸"
+"Makanlah sesuatu yang lezat hari ini!"
+Semoga harimu menyenangkan ⭐️"
+
+engtrans: daebubble
+*@exoljjang_ina*
+</div>
+
+## Hearts2HeartsUpdateSM — post 23241
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23241_1778736864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #HEARTS2HEARTS SNS UPDATE
+
+With a piano prodigy at hanbatang
+
+#Hearts2Hearts #하츠투하츠 #H2H
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23240
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23240_1778736867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#HEARTS2HEARTS has been confirmed to perform at the KM CHART AWARDS 2026
+
+📍 Korea University Hwajeong Tiger Dome
+📆 July 25, 2026
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23239
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23239_1778736868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #HEARTS2HEARTS TIKTOK UPDATE
+
+ad
+LILY BROWN
+"CANDY STOCK"
+26 SUMMER COLLECTION
+starring Hearts2Hearts
+
+2026.05.13(Wed) 12:00pm Start !
+
+👇Check
+@lily_brown_official
+
+#Hearts2Hearts #lilybrown
+#リリーブラウン
+#Hearts2Hearts♥LILYBROWN
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23238
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23238_1778736871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260514] #HEARTS2HEARTS TWITTER UPDATE
+
+🩵 @_LilyBrown #lilybrown
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 05:03
 ---
 
