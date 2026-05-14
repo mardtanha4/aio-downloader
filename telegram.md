@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 00:15
+---
+
+## Dirty_Kids — post 389469
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389469_1778791513.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چون دل‌تون برای سخنگوی اسکل الانبیا تنگ شده میدونم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389468
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389468_1778791514.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اره داداش، امریکا تایوان رو میده به چین و ایران رو ازش میگیره.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 22:36
 ---
 
