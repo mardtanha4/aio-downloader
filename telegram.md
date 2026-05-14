@@ -7,6 +7,118 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 15:49
+---
+
+## Dirty_Kids — post 389435
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389435_1778761140.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقیقا وقتی فکر می‌کنی جمهوری اسلامی تپه نریده باقی نذاشته، همون لحظه یه تپه جدید می‌سازه و میره سرش میرینه.
+فقط مونده بود برن از امارات کشتی بدزدن فرار کنن، که اونم گویا حاصل شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389434
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389434" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389433
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389433_1778761141.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سختی زبان چینی همینقدر بگم که اگه یکم تن صداتو بالا پایین کنی معنی کلمه از توت‌فرنگی به خوارتو گاییدم تغییر می‌کنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389431
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389431_1778761142.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شراب چینی ایلان ماسکو کصخل کرده، هر کی میاد باهاش عکس بگیره شکلک در میاره 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23261
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23261_1778761144.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Welcome to LA~ 하늘이 완전 파란색이에요⋆☀︎.(˶ᵔ ᵕ ᵔ˶) | Hearts2Hearts 하츠투하츠 Our Days in USA BH2ND #3 LA
+
+youtu.be/LZZ6cV8PdWg
+
+#Hearts2Hearts #하츠투하츠 #H2H
+#H2HFANMEETING #HEARTS2HOUSE_LA
+#BH2ND
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 14:12
 ---
 
