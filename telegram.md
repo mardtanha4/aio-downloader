@@ -7,6 +7,114 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 12:58
+---
+
+## exoupdate_news — post 60393
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60393_1778837330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Home Facial Pro Weibo UPDATE #BAEKHYUN
+
+"Cuplikan di balik layar | Di mana tombol keluar untuk video ini? 🔁
+
+Di antara pembukaan dan penutupan rana, kami diam-diam mengabadikan Baekhyun @INB100_BAEKHYUN yang fokus dan sungguh-sungguh . Klik pada video untuk melihat beberapa momen menyenangkan~"
+
+https://m.weibo.cn/status/5298777229627261
+
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] ssu_mny (Fotografer EXO Season Greetings 2026) Instagram UPDATE
+
+EXO 2026 SEASON‘S GREETINGS ‘Division Zero:EXO’
+
+https://www.instagram.com/p/DYUVUiPmiJQ/?igsh=c2R0eGpnaHJhZTk2
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60380
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] ssu_mny (Fotografer EXO Season Greetings 2026) Instagram UPDATE
+
+EXO 2026 SEASON‘S GREETINGS ‘Division Zero:EXO’
+
+https://www.instagram.com/p/DYUVUiPmiJQ/?igsh=c2R0eGpnaHJhZTk2
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389484
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389484_1778837332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچ کودکی نباید اول قصه‌اش از کنار قبر پدرش شروع شود…
+در ایران اما این سرنوشت خیلی از کودکان است.
+#علیرضا_احمدی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389483
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389483_1778837333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پستِ خواهرِ جاویدنام سپهر ابراهیمی نشون میده که سپهر هم یه پادشاهی خواه بود ❤️
+این انقلاب و پادشاهی خواها با خونشون به ثمر میرسونن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389482
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389482_1778837333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زندگی تو ایران که استرس نداره بابا
+ممد ۲۰ ساله:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش حداقل خودمون ریده بودیم تو زندگیمون. درس خوندیم، کار کردیم، زحمت کشیدیم و نهایتا دستاوردش چی بوده؟ کیرخر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389480
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389480_1778837334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیدوارم برسه به دست ترامپ.
+عمویم خریت بچه ‌شیعه:
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 09:50
 ---
 
