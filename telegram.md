@@ -7,6 +7,42 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 09:50
+---
+
+## exoupdate_news — post 60374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] lay_studio SNS UPDATE
+
+"Malam menyelimuti bahu, angin senja menerpa jubah. Di tengah langit berbintang dan lampu kota, Boss @layzhang perlahan menyingkap pesona dan kemegahan unik dari Timur."
+
+#LAY #LayZhang
+
+https://www.instagram.com/p/DYWI6iplKlq/?igsh=ODNsYjdlcHFtNW40
+
+https://x.com/i/status/2055142573375930820
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] lay_studio SNS UPDATE
+
+"Malam menyelimuti bahu, angin senja menerpa jubah. Di tengah langit berbintang dan lampu kota, Boss @layzhang perlahan menyingkap pesona dan kemegahan unik dari Timur."
+
+#LAY #LayZhang
+
+https://www.instagram.com/p/DYWI6iplKlq/?igsh=ODNsYjdlcHFtNW40
+
+https://x.com/i/status/2055142573375930820
+*@exoljjang_ina*
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 06:09
 ---
 
