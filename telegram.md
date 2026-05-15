@@ -7,6 +7,98 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 15:04
+---
+
+## Dirty_Kids — post 389487
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389487_1778844888.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاشیدم تو تار به تار سیبیلاتون.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389486
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389486_1778844889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت جهانی استارلینک مینی با تخفیف به زیر ۲۰۰دلار (۳۶میلیون تومن) رسیده و پایین‌تر هم میاد. سایز دیشش هم اندازه‌ی یه کاغذ A4 هس و براحتی همه جا مخفی میشه و با وضعیت ایران هیچ رقمه نمیشه جلوی موج قاچاقش رو گرفت.
+
+رویای آخوند برای کنترل بلند مدت اینترنت فقط یه توهمه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389485
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389485_1778844889.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+R25
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Hearts2HeartsUpdateSM — post 23272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260515] #YUHA WEVERSE UPDATE
+
+But I still like spring moreee 🌱
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23271
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23271_1778844890.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260515] #HEARTS2HEARTS SNS UPDATE
+
+Summer, just wait for us
+
+#Hearts2Hearts #하츠투하츠 #H2H
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 12:58
 ---
 
