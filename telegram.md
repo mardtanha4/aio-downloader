@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 03:07
+---
+
+## exoupdate_news — post 60426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] lay_studio SNS UPDATE
+
+"Pohon palem menghiasi karpet merah,
+Pesona oriental bersinar terang di Cannes.
+Setiap langkah dipenuhi dengan keanggunan Timur;
+Semua mata tertuju pada @layzhang saat ini.
+Dengarkan gema di seluruh dunia,
+Dan saksikan romansa dan keanggunan unik Tiongkok."
+
+#LAY #LayZhang
+
+https://www.instagram.com/p/DYWR29eFFqI/?img_index=2&igsh=MWF4cGgxenFtb3l6dA==
+
+https://x.com/i/status/2055158894373249323
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389538
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389538_1778888263.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389537
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389537_1778888264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A25
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389536
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389536_1778888264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389535
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389535_1778888264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانو ناتالیا بیش از ۲۰ نفر از اعضای حماس رو به هلاکت رسونده تو غزه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389534
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389534_1778888265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو مانوک؛ اخلاق رضاشاه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389533
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389533_1778888266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاتو لیس بزن گه اضافه نخور 😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389532
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389532_1778888266.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+املاکی در مصاحبه با Bret Baier مجری برنامه Special Report شبکه فاکس نیوز در خصوص خواری که رژیم کسمغز روافض در مذاکرات ازش گاییدن فرموده که:
+
+
+«ما واقعاً به نوعی از پایه‌های یک توافق رسیده بودیم. بدون سلاح هسته‌ای.
+
+اون‌هزارپدرای قحبه‌ قرار بود غبار هسته‌ای رو به ما تحویل بدن، همه چیو، هر چیزی که ما می‌خواستیم.
+
+و هر بار که توافقی می‌کنن، این پدرخرابا روز بعدش به جوری رفتار می‌کنن که انگار ما از اساس همچی گفتگویی نداشتیم، و این اتفاق حدود پنج بار رخ داده.
+
+یک مشکلی در این مادرقحبه‌های رافضی وجود داره، در واقع این حرومیا دیونه میوونه‌اند. [علاوه بر کسمغزی،خدعه‌زاده‌ان شیر خدا. اما خب دو بار گاییدی‌شون و فهمیدن اون ممه رو لولو خورد]
+
+و می‌دونید چیه؟ به همین دلیل، این جاکش‌پدرا‌ نباید سلاح هسته‌ای داشته باشن»
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389529
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این بانو که یکم حشری‌طور میزنه امروز حاشیه ساز بوده
+
+یه عده دفاع میکنن ازش
+یه عده هیت میدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23279
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23279_1778888267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#CARMEN changed her Weverse nickname to nita😗
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 02:07
 ---
 
