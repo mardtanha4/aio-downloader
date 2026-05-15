@@ -7,6 +7,137 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 06:09
+---
+
+## exoupdate_news — post 60368
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✨ *EXO SCHEDULE MEI 2026* ✨️
+
+📆 2 - 3 MEI ✅️
+📝 *EXO Planet 6: 'EXhOrizon' in Nagoya
+⏰️ 16.00 WIB & 15.00 WIB
+
+📆 4 MEI ✅️
+📝 *BAEKHYUN* x HFP: Video Teaser <HomeFacialPro China ‘Enlighten your wish’ >
+📝 *KAI* : No, But Really!
+⏰️ 20.10 WIB
+📺 SBS
+
+📆 6 MEI ✅️
+📝 *BAEKHYUN* Birthday 🥳🎂🎉
+📝 *BAEKHYUN* x HFP: Official Announcement
+ㄴ TVC Television Commercial Video Release
+📝 *CHANYEOL* : Rising Eagles Full Match 4
+
+📆 7 MEI ✅️
+📝 *BAEKHYUN* x HFP: Berbagi tentang perawatan kulit
+📝 *KAI* : Jeongwaja Ep. 121
+
+📆 9 MEI ✅️
+📝 *CHANYEOL* : Choi Crew Ep. 4
+⏰️ 16.00 WIB
+
+📆 9 - 10 MEI ✅️
+📝 *EXO Planet 6: 'EXhOrizon' in Taipei
+⏰️ 17.00 WIB & 15.00 WIB
+
+📆 11 MEI ✅️
+📝 *KAI* : No, But Really!
+⏰️ 20.10 WIB
+📺 SBS
+
+📆 13 MEI ✅️
+📝 *BAEKHYUN* x HFP: Wawancara di balik layar
+📝 *CHANYEOL* : CHchanyeol Youtube 'Piknik sendirian'
+
+📆 15 MEI
+📝 *BAEKHYUN* x HFP: Konten bonus eksklusif (cuplikan blooper)
+📝 *CHANYEOL* : 개운빨 premiere episode
+📝 *EXO* : Shopee Thailand Fansign & Photo Event
+
+📆 16 MEI
+📝 *CHANYEOL* : Choi Crew Ep. 5
+⏰️ 16.00 WIB
+
+📆 16 - 17 MEI
+📝 *EXO Planet 6: 'EXhOrizon' in Bangkok
+⏰️ 18.00 WIB & 16.00 WIB
+
+📆 18 MEI
+📝 *KAI* : No, But Really!
+⏰️ 20.10 WIB
+📺 SBS
+
+📆 20 MEI
+📝 *CHANYEOL* : CHchanyeol Youtube 'Pendakian peringatan ulang tahun pertama'
+📝 *CHANYEOL* : Rising Eagles Full Match 6
+📝 *SUHO* : B-day Party 'To My First Love'
+⏰️ 18.00 WIB
+
+📆 21 MEI
+📝 *KAI* : Jeongwaja Ep. 122
+
+📆 22 MEI
+📝 *SUHO* Birthday 🥳🎂🎉
+
+📆 22 - 23 MEI
+📝 *EXO Planet 6: 'EXhOrizon' in Macau
+⏰️ 19.00 WIB & 18.00 WIB
+
+📆 23 MEI
+📝 *CHANYEOL* : Choi Crew Ep. 6
+⏰️ 16.00 WIB
+
+📆 24 MEI
+📝 *EXO* Fansign 'Reverxe' in Macau by Xiaomang
+
+📆 25 MEI
+📝 *KAI* : No, But Really!
+⏰️ 20.10 WIB
+📺 SBS
+
+📆 27 MEI
+📝 *CHANYEOL* : CHchanyeol Youtube 'Blind Boxes'
+
+📆 28 MEI
+📝 *KAI* : Jeongwaja Ep. 124
+
+📆 30 MEI
+📝 *EXO* at MCOUNTDOWN
+
+*Jadwal akan bertambah/berubah sesuai jadwal terbaru
+
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60366
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] PREVIEW Airport #KAI Flight ICN ✈️ BKK
+
+*Kai di bandara ICN menuju Bangkok, Thailand untuk acara fansign & foto offline dan konser EXhOrizon mereka.ᐟ ✈️🇹🇭
+
+cr.onpict
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60365
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60365_1778812771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Sehun, Suho dan Chanyeol di bandara ICN menuju Bangkok, Thailand untuk acara fansign & foto offline dan konser Exhorizon mereka.ᐟ ✈️🇹🇭
+
+@.milkteus
+*@exoljjang_ina*
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 03:23
 ---
 
