@@ -7,6 +7,190 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 19:06
+---
+
+## exoupdate_news — post 60424
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Preview #EXO at Shopee Thailand Fansign
+
+
+cr.onpict
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60423
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60423_1778859391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] LAY INSTAGRAM LIVE <Record>
+
+Ujian tidak bisa menentukan siapa dirimu, tetapi kita tetap perlu melewatinya🤣
+
+@BAEK0FF
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60422
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60422_1778859394.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Lay's Channel Instagram UPDATE
+
+"Hai semuanya. Ada masalah dengan internet atau semacamnya. Mungkin koneksi internetnya bermasalah.
+Jadi aku mau terbang. Aku akan terbang. Dan ya.
+Aku mau istirahat sebentar. Eh, tidur siang.
+Dan kalian tahu, nonton sesuatu.
+Kalau kalian mau tidur, boleh tidur. Dan kalau kalian sedang bekerja, fokus saja pada pekerjaan kalian. Oke? Semoga hari kalian menyenangkan. Dan kalau aku sudah mendarat, aku mau beritahu kalian ya.
+
+@YuXING1012
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60420
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60420_1778859397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Preview #SEHUN at Shopee Thailand Fansign
+
+
+cr. mmiewmiewmiew
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60417
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60417_1778859399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Preview #CHANYEOL at Shopee Thailand Fansign
+
+
+cr. mmiewmiewmiew
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60416
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60416_1778859401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Preview #EXO at Shopee Thailand Fansign
+
+
+cr. tcnlu_
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60415
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60415_1778859404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] LAY INSTAGRAM LIVE <Record>
+
+"Aku tidak bisa menjadi suamimu, aku bisa menjadi Abang Lay-mu."
+
+@YuXING1012
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60414
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60414_1778859407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] Preview #KYUNGSOO at Shopee Thailand Fansign
+
+*Kyungsoo kalah suit sama OP 🥹🫣😆
+
+cr. mine_doki
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389501
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389501_1778859410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیدونم کیه این پسره و چه برنامه‌ای هست ولی داره درست میگه، این اقلیت ۵درصدی رافضی ولایت‌به‌باسن برای اینکه بمونن راضین همرو بکشن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389500
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389500_1778859411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یعنی این فیلم The Odyssey که قراره بسازن مزخرف ترین فیلمی خواهد بود که تاحالا ساخته شده!
+نقش آشیل رو قراره یه زن تغییر جنسیت داده بازی کنه و نقش هلن رو قراره یه سیاه پوست لاغر.🥴
+حتی به دول آشیل و رنگ پوست هلن هم رحم نگردن این چپهای کسخل
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از پدرهای پویان مختاری هم پیدا شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389497
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389497_1778859412.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلا تو یه لیگ دیگه‌ست :)))
+
+ترامپ در پاسخ به این سؤال که آیا درباره حملات سایبری علیه آمریکا با شی جین‌پینگ حرف زده یا نه:
+
+'آره، بهش گفتم. اونم شروع کرد درباره کارایی که ما تو چین کردیم حرف زدن.
+خب می‌دونی، هر کاری اونا بکنن ما هم می‌کنیم. ما هم حسابی ازشون جاسوسی می‌کنیم.
+بهش گفتم ما یه عالمه کارها علیه شما می‌کنیم که اصلاً خبر ندارین.'
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389496
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389496_1778859413.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه یوتیوب تتلو :
+امیرخان درحالی که فقط یک ماه به شروع جام جهانی مونده، از تو زندان استارت تمرین‌هاش رو زده و میخواد عضو یه تیم ملی بشه تا تو این مسابقات شرکت کنه.
+
+خودشم داخل قوطی رنگ و بطریِ وایتکس، گچ و سیمان ریخته و داره ازشون به عنوان دمبل استفاده می‌کنه.
+ایشون تو یه فضای 1*1 داره تمرین میکنه و واسه صبحونه، ناهار و شام فقط عدسی و آب‌میوه میخوره!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 16:48
 ---
 
