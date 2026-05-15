@@ -7,6 +7,247 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 16:48
+---
+
+## exoupdate_news — post 60413
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60413_1778851122.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] BAEKHYUN BUBBLE UPDATE 🐶🫧 *latepost "Apa yang harus kubeli sebagai hadiah Hari Guru?…" "Ini sulit sekali… Aku keluar untuk membeli hadiah untuk guru vokal dan istrinya, tapi aku tersesat… Aku tidur lebih awal kemarin jadi kondisiku sedang…
+</div>
+
+## exoupdate_news — post 60412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] BAEKHYUN BUBBLE UPDATE 🐶🫧
+*latepost
+
+"Apa yang harus kubeli sebagai hadiah Hari Guru?…"
+"Ini sulit sekali… Aku keluar untuk membeli hadiah untuk guru vokal dan istrinya, tapi aku tersesat… Aku tidur lebih awal kemarin jadi kondisiku sedang prima, tapi tiba-tiba energiku terkuras…"
+"Kamu mungkin tidak begitu mengerti, kan?… Sulit sekali, ya?…"
+
+engtrans : fourbaekpearl
+*exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60411
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60411_1778851123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] EXO OFFICIAL SNS UPDATE #CHANYEOL
+
+"#Memulai rentetan keberuntungan 🫧🧤"
+
+https://www.instagram.com/p/DYWjfAoK7JQ/?igsh=YTZmMnFyb2ltYWwx
+
+https://x.com/i/status/2055201662327992394
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60410
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60410_1778851124.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] EXO OFFICIAL SNS UPDATE #CHANYEOL
+
+"Charlie Charlie, apakah kamu merasa segar? YES… | Seorang Idola 15 Tahun yang Memoles dan Menyinari Perusahaan Orang Lain"
+
+youtu.be/eI5olXDx6ps
+
+https://x.com/i/status/2055181653493047616
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] ssu_mny (Fotografer EXO Season Greetings 2026) Instagram UPDATE
+
+EXO 2026 SEASON‘S GREETINGS ‘Division Zero:EXO’
+
+https://www.instagram.com/p/DYUX4CNmnM-/?igsh=MWs2YmY3NjJpaDRoNg==
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60394
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] ssu_mny (Fotografer EXO Season Greetings 2026) Instagram UPDATE
+
+EXO 2026 SEASON‘S GREETINGS ‘Division Zero:EXO’
+
+https://www.instagram.com/p/DYUX4CNmnM-/?igsh=MWs2YmY3NjJpaDRoNg==
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389495
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389495_1778851126.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه‌ی مصاحبه‌ی جلو در توالتی ترامپ در راه بازگشت از چین:
+
+خبرنگار: آیا تونستید تایید کنید که اون موشک [که به مدرسه‌ی میناب اصابت کرد] آمریکایی بوده؟
+
+ترامپ: شما با کجا کار می‌کنید عزیزجان؟
+
+خبرنگار: بی‌بی‌سی.
+
+ترامپ: بی‌بی‌سی جعلی؟ تو گه بخور. منظورت همون جاکشاییه که با هوش مصنوعی دهن من حرف گذاشتند؟ همونا که از قول من بیانیه‌ای رو منتشر کردند که حالا خودشون اعتراف می‌کنن حقیقت نداشته؟ همون پوفیوزایی که کلمات وحشتناکی رو گذاشتن دهن من و بعد مجبور شدند اعتراف کنن که جعلی بوده؟
+همون دیوثایی که الان به خاطر ۵ میلیار...
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر از چندگاهی مچ خودمو درحال ریلز دیدن میگیرم. بی پروای فقیر
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389493
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران حتی تبریک تولدهامون‌ هم نفرینه
+ایشالله خودت ۱۲۰ ساله بشی بی‌شرف
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389492
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389492_1778851127.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنلاین شاپا باز شروع کردن...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389491
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389491" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389490
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389490_1778851128.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389489
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389489_1778851129.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در مورد پروپوزال ایران:
+ترامپ: جمله اولش رو که خوندم انداختمش دور!
+خبرنگار: جمله اول چی بود؟
+ترامپ: یه‌ چیز غیرقال قبول! ما نمیخوایم ایران غنی سازی کنه!!
+خبرنگار: یعنی ۲۰ سال توقف غنی سازی کافی نیس؟
+ترامپ: ۲۰ سال کافیه ولی باید واقعی باشه و تضمین بدن!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389488
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389488_1778851130.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای به مناسبت روز بزرگداشت فردوسی، این پیام رو منتشر کرد:
+
+همین که یک تازی راهزن بیابانگرد رافضی به ارزش‌های زبان و ادبیات فارسی اعتراف می‌کند می‌تواند جالب باشد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23278
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23278_1778851131.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260515] WEVERSE COMMENT
+
+😊: I’m so touched that a post using only the photos I took was uploaded 🥺
+───────
+😊: Aku terharu banget karena ada postingan yang cuma pakai foto hasil jepretanku sendiri 🥺
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 15:04
 ---
 
