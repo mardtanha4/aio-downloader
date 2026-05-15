@@ -7,6 +7,51 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 23:47
+---
+
+## Dirty_Kids — post 389522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوشته خرید حلقه ی نقره برای ازدواج رو نرمالایز کنید
+
+کشوری که نمیتونی یه حلقه طلا توش بخری، چرا باید توش ازدواج کنی؟!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بنظرم اصن معلوم نمیکنه ترامپ از چین برگرده چی میشه الکی حدس نزنیم.
+بعید نیست یهو تایوان رو بده به ایران تنگه رو بده به لبنان روبیو رو بده به سمنان.
+هیچ بعید نیست
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389520
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389520_1778876255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایلان ماسک : اینستاگرام واسه دختراست؛
+
+
+بعضی وقت‌ها یسری مرد بالغ آیدی اینستاگرام‌شون رو واسه من می‌فرستن و من می‌پرسم: آیا داری تغییر جنسیت میدی؟
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 22:27
 ---
 
