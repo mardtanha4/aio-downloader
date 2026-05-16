@@ -7,6 +7,180 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 14:07
+---
+
+## exoupdate_news — post 60450
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60450_1778927846.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok <sound check>
+
+#CHANYEOL merekam video dirinya bersama member EXO menggunakan ponsel EXO-L 😍
+
+cr.onvid
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧 15:28 KST "Aku mau coba tidur siang... 요 (yo)... ㅎㅎ" (Konteks: Dalam bahasa Korea, "요" (yo) adalah kata kecil yang ditambahkan di akhir kalimat untuk membuatnya sopan dan hormat. Dia memulai kalimatnya dengan…
+</div>
+
+## exoupdate_news — post 60448
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧  11:45 KST "(menggigil)…. Aku kehabisan energi/kekuatan…." 12:20 KST "Aku sedang makan siang sekaraaaaang" "Lukaku semakin parah, jadi aku tidak bisa menunjukkannya padamu… Aku harus berhenti membuatmu khawatir…
+</div>
+
+## exoupdate_news — post 60446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] oohsehun INSTAGRAM UPDATE
+
+"🇹🇭"
+
+https://www.instagram.com/p/DYZJOPHEbxG/?igsh=enphajExYmJkNGFp
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389547
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏لیست مشاغل باقی مانده در ایران :
+کانفیگ فروش
+عرق فروش
+آدم فروش
+اسنپ
+تریاک فروش
+
+بقیه هم نشستن همو نگاه میکنن …
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389546
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389546_1778927849.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی انگلیس وقتی یه پیرمرد بالاخره به رویاش رسید و یه خانم زیبا رو بوس کرد، از شدت هیجان و شادی بیهوش شد و کارش به بیمارستان کشید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389545
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389545_1778927851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بادبان با همراهی شما 50 هزار نفری شد
+🎉
+
+
+🛡فروش سرویس جدید با کاهش قیمت تا گیگی 200 هزار تومان باز شد
+🛒
+
+
+🎊کد تخفیف 100 هزار تومانی بادبان فعال بوده و میتونید برای خرید اولتون ازش استفاده کنید
+
+BadBan4k : کد تخفیف
+
+
+🚀همچنین میتونید با معرفی بادبان از طریق لینک معرفی به دوستان 10 درصد از مبلغ تمام خرید هاشون رو در کیف پولتون داشته باشید
+R26
+وقتی بادبان داری، هیچ بادی مانع نیست… با ما راه بازه حتی وقتی اینترنت ملیه!
+
+
+⛵️@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاسداران سپاه اسلام هستند که خیلی شیک با دیدن اولین اسلحه دست طرف مقابل تسلیم شدند:)
+
+
+تجهیزات این نیروهای ویژه سپاه در یک عملیات واقعی هم جالب است
+حتی تجهیزات غواصی هم مخصوص عملیات نیروی ویژه نیست
+گفته شده بود اینها روی لنج بودند ولی با توجه به عکس به نظر روی یک قایق تندرو بودند و حتی پیش از آغاز عملیات خفت شدند
+با این حساب پاشون بوبیان هم نرسیده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] #YE_ON WEVERSE UPDATE Hello, this is Ye-on😊 I wrote a review of the random Harry Potter jelly beans we ate on the promotion day during our first showcase tour in the U.S. back in March. First of all, I never want to experience these jelly beans…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23284
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23284_1778927851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] #YE_ON WEVERSE UPDATE
+
+Hello, this is Ye-on😊
+I wrote a review of the random Harry Potter jelly beans we ate on the promotion day during our first showcase tour in the U.S. back in March.
+
+First of all, I never want to experience these jelly beans again...
+(I think I overdid it and ate way too many on the day we filmed the behind-the-scenes...)
+
+To explain each flavor in the order I ate them:
+● Watermelon🍉: It tasted exactly like watermelon and was great for cleansing the palate!
+● Grass🌿: I don’t know what flavor it was supposed to be, but it tasted very... natural.
+● Rotten Egg🥚: I picked it up and ate it without knowing what flavor it was at first... (I’ll stop there.)
+... One of the most shocking flavors.
+● Vomit: ...
+● Earthworm🪱: I’ve never eaten dirt before, but it tasted like what I imagine dirt would taste like(?).
+● Mixed Fruit🍓🍎: It makes your mouth feel refreshed.
+Conclusion: Never try the vomit flavor or rotten egg flavor...
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23282
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] @joydayicecream INSTAGRAM UPDATE
+
+Annyeong, JoyPeeps 💛🩵
+Say hello to JOYDAY New Brand Ambassador: Hearts2Hearts!
+
+Hearts2Hearts resmi jadi Brand Ambassador terbaru JOYDAY 💛🩵 Siap-siap ya, karena bakal ada banyak kejutan seru!
+
+Seberapa excited kalian dengan kolaborasi kita? Minjoy sih excited banget!
+
+#BerlapisKejutannya #JoydayIceCream #Hearts2Hearts #JOYDAYxHearts2Hearts
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 12:31
 ---
 
