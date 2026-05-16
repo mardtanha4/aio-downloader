@@ -7,6 +7,45 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 12:31
+---
+
+## Dirty_Kids — post 389542
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389542_1778922118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کجای دنیا دیدید کلاشینکف ببرند توی استودیو تلوزیون آموزش بدن اونهم با تیر واقعی و شلیک کنند به سقف استودیو،جز طویله صداوسیمای رژیمی که صدای نفسهای سقوط رو میشنوه @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389541
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389541_1778922118.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کجای دنیا دیدید کلاشینکف ببرند توی استودیو تلوزیون آموزش بدن اونهم با تیر واقعی و شلیک کنند به سقف استودیو،جز طویله صداوسیمای رژیمی که صدای نفسهای سقوط رو میشنوه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389539
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389539_1778922120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دیشب صداوسیما اسلحه داده بود دست مجریاش تا برای دشمن رجز بخونن و تهدید کنن!
+
++ بوی سقوط و ضعف مساویس با دست‌وپای بیشتر
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 10:41
 ---
 
