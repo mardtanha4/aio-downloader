@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:03
+---
+
+## Dirty_Kids — post 389585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏شاباش های دهه هفتاد هشتاد اینطوری بود که طرف میگفت حالا که دارم هزینه میکنم بذارم دهنش.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389581
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389581_1778967222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصاویر وایرال شده از یه خانم اهل انگلیس که خواستارِ اخراج مهاجرین از این کشوره.
+
++ ارزش دانلود: 195 از 100
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 00:11
 ---
 
