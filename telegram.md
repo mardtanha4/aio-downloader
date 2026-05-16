@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 04:54
+---
+
+## exoupdate_news — post 60437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧 *latepost 06:00 KST "Mengantuk….." "Haha…. Rasanya seperti mau pergi ke acara/siaran musik, ya?…^^" "Kemarin, setelah sampai rumah aku istirahat, lalu ada pelajaran jam 10:30. Tapi aku bangun jam 11, jadi aku…
+</div>
+
+## exoupdate_news — post 60436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧
+*latepost
+
+06:00 KST
+"Mengantuk….."
+"Haha…. Rasanya seperti mau pergi ke acara/siaran musik, ya?…^^"
+"Kemarin, setelah sampai rumah aku istirahat, lalu ada pelajaran jam 10:30. Tapi aku bangun jam 11, jadi aku buru-buru pergi dan sampai di sana jam 11:30.. Saat pelajaran selesai, sudah jam 2… Aku tidak bisa tidur, jadi aku hanya tidur selama 30 menit.. Hahahahahahaha. Kurasa karena aku terus berpikir “Aku harus berangkat pagi-pagi,” aku jadi tidak bisa tidur?…^^"
+
+engtrans : fourbaekpearl
+*exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] BAEKHYUN BUBBLE UPDATE 🐶🫧  *latepost "📸" "Tanganku jadi sakit...." "Bisakah kamu memelukku sebentar....??🥺" "Aku mampir ke pom bensin, dan sepertinya aku sangat gugup/terlalu fokus karena apa yang akan kulakukan besok ㅋㅋㅋㅋㅋㅋㅋㅋㅋ Mereka…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 03:07
 ---
 
