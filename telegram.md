@@ -7,6 +7,274 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 15:06
+---
+
+## exoupdate_news — post 60453
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60453_1778931414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] CHEN BUBBLE UPDATE 🦖🫧
+
+"📸"
+"Semoga akhir pekanmu menyenangkan!
+Cobalah hal-hal yang sudah lama ingin kamu lakukan di akhir pekan!!
+Aku juga menyayangimu hari ini 💛"
+"🔜✌️"
+
+engtrans: daebubble
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60452
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60452_1778931415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok <sound check>
+
+EXO-SKY dengan tingkah "nakalnya" ke Kyungsoo 😂
+
+cr.xopinkpink
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60451
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60451_1778931418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok <sound check>
+
+Permainan Keseimbangan EXO hari ini!
+
+Mana yang lebih kalian tidak sukai: A. Seseorang yang tidak pernah membayar saat makan bersama vs B. Seseorang yang selalu terlambat untuk jadwal grup?
+
+Semua orang kecuali Suho memilih B~
+
+🐥 Yah, kita bisa membayar kapan pun kita mau. Kita bisa membayar saja~
+🍒 Ya, kita bisa, tapi jika kita terlambat untuk jadwal grup…
+🐥 Maka tidak bisa dihindari~ Seperti yang diharapkan, orang yang datang paling akhir (untuk jadwal) Eheh!
+🐰 Ahem!
+🍒 Jika kamu terlambat untuk jadwal grup, kamu benar-benar pantas dimarahi!
+🐰 Aku
+🍒 Terlambat untuk jadwal grup berarti kamu tidak mempertimbangkan orang lain!
+🐰 Aku mengerti~
+🍒 Terlambat untuk jadwal grup berarti kamu melakukan kesalahan pada semua orang!
+🐰 Aku mengerti~ Cukup sudah! *berpindah ke sisi lain* Ah, aku juga sangat tidak suka kalau ada yang terlambat~
+🐧 *mendorong Suho untuk kembali*
+🍒 (ke Suho) Kamu pergi ke sana!
+
+cr.onvid, xunhuas
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389553
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389553_1778931422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به اونایی که می‌گفتن تو کوله سرباز خارجی آزادی پیدا نمی‌شه بگید مجری‌های صداوسیما واستون اسلحه کشیدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389552
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بمونم خونه overthink ميكنم، برم بيرون overpay.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389551
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389551_1778931422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مامانم وقتی میگم از عمه خبری نیست:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389550
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389550" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389549
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389549_1778931423.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389548
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389548_1778931424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#کص_فدا 😂😂😂😂
+فاکتور داره میکنه بره پولشو بگیره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] #JUUN WEVERSE UPDATE
+
+There’s more🩵
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] WEVERSE REPLY
+
+🩵: carmen, today's song recommendation
+🌴: Beautiful by Bazzi ft. Camila Cabello🤗🎶
+
+🩵: NITA~ what’s Mei M?
+🌴: "Even though love is separated by distance~~🎶"
+
+🩵: Reumen, recommend me a dinner menuㅜㅜㅜㅜㅜ
+🌴: Udon.
+
+🩵: Reumenping, describe your day in one sentence please.
+🌴: AAAAAAAAAAAAAAAAAAAAA
+
+🩵: Weekend evening with Reumenping, I love you.
+🌴: Today is the weekend?
+🌴: I love you too.
+
+🩵: I’m eating yakinikuㅎㅎ😋
+🌴: Eat well ~ >_<
+
+🩵: Reumenping, when can we go on a date??
+🌴: We already did yesterday!!!!
+
+🩵: What did you eat today?
+🌴: I ate steak and lobster with Yuha, Stella, and A-NAㅎㅎ
+
+🩵: (spam “Reumenping I love you” many times)
+🌴: I love Hachuu too 💖
+
+───────
+
+🩵: Carmen, rekomendasi lagu hari ini dong
+🌴: Beautiful by Bazzi ft. Camila Cabello🤗🎶
+
+🩵: NITA~ Mei M itu apa?
+🌴: "Meski bentang jarak asmara~~🎶"
+
+🩵: Reumen, rekomendasi makan malam dongㅜㅜㅜㅜㅜ
+🌴: Udon.
+
+🩵: Reumenping, ceritain harimu hari ini dalam satu kalimat dong.
+🌴: AAAAAAAAAAAAAAAAAAAAA
+
+🩵: Malam weekend bareng Reumenping, love you.
+🌴: Hari ini weekend ya?
+🌴: Love you too.
+
+🩵: Aku lagi makan yakinikuㅎㅎ😋
+🌴: Makan yang enak ya ~ >_<
+
+🩵: Reumenping, kapan kita bisa ngedate??
+🌴: Kan kemarin udah!!!!
+
+🩵: Hari ini makan apa?
+🌴: Aku makan steak dan lobster bareng Yuha, Stella, dan A-NAㅎㅎ
+
+🩵: (spam "Reumenping I love you")
+🌴: Aku juga sayang Hachuu 💖
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23287
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] #IAN WEVERSE UPDATE
+
+🍊😋
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23286
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23286_1778931424.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] #YE_ON WEVERSE UPDATE Hello, this is Ye-on😊 I wrote a review of the random Harry Potter jelly beans we ate on the promotion day during our first showcase tour in the U.S. back in March. First of all, I never want to experience these jelly beans…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 14:07
 ---
 
