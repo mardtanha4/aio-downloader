@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:46
+---
+
+## exoupdate_news — post 60481
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60481_1778944562.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+Reaksi EXO terhadap proyek penggemar “EXO + EXOL = 1” hari ini
+“❤️ ​​ㅅㄹㅎㅈ (Saranghaja / Let’s love) ❤️”~
+
+🐥 Bisakah kalian menunjukkannya lagi kepada kami? Tolong tunjukkan lagi, aku belum sempat melihatnya tadi~
+🍒 WOW!
+🐥 Ah, jadi mereka benar-benar harus menyalakannya sendiri~ Cantik sekali!
+🍒 Bisakah seseorang mengambil foto ini?
+🐰 Saat kita semua berfoto bersama di akhir, tolong nyalakan lagi~
+🐥 Tolong bantu kami nanti~
+🐧 Wow, sungguh menakjubkan!
+🐻 Kurasa sangat menyentuh memiliki acara seperti ini yang disiapkan untuk kita saat kita bernyanyi, kan?
+🐧 Benar sekali~ (x2)
+🐻 Terima kasih banyak semuanya~
+🐥 TERIMA KASIH! (dalam bahasa Thailand)
+🐧 TERIMA KASIH! (dalam bahasa Thailand)
+
+@.xunhuas
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] KAI BUBBLE UPDATE 🐻🫧 23:22 KST "ㅠㅠ" (emoji menangis) engtrans : 114message *@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] KAI BUBBLE UPDATE 🐻🫧
+
+23:22 KST
+
+"ㅠㅠ" (emoji menangis)
+
+engtrans : 114message
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+"CRAZY" 😎
+
+cr.xopinkpink
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60477
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60477_1778944565.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+CHANYEOL minta EXO-L nyanyi part rap dia di lagu Lightsaber 😭👊🏻
+
+🍒 : Ada satu lagu yang benar-benar ingin kudengar dengan suara kalian
+🍒 : Aku ingin mendengar Lightsaber... bagian rap-nya!
+🍒 : Bisakah kalian menyanyikannya?
+🍒 : 1, 2, 3.. danger!
+
+@.no_loey_no_life
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+"El-dorado" 🔥
+
+cr.knockknock0408
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389558
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389558_1778944568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مداح‌: وقت نبرده بابا، به ترامپ بیناموس بگو، بچه کونه بابا
+
+مجری اسلحه میکشه مداح فحش رکیک میده، چه دست و پایی میزنن
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 17:41
 ---
 
