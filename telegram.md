@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 10:41
+---
+
+## exoupdate_news — post 60445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧  "📸" "Tekad untuk tidak terkena sengatan matahari..." engtrans : fourbaekpearl *exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60444
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60444_1778915479.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] SEHUN BUBBLE UPDATE 🐥🫧
+
+“Ayo kita makan sesuatu yang enak untuk makan siang”
+"📸"
+
+*@exoljjang_ina*
+</div>
+
+## Hearts2HeartsUpdateSM — post 23281
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23281_1778915481.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] #HEARTS2HEARTS SNS UPDATE
+
+dont rate my moves
+
+#Hearts2Hearts #하츠투하츠 #H2H #STELLA #스텔라
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23280
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23280_1778915484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[VIDEO]
+
+#HEARTS2HEARTS for Joyday Ice Cream
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 08:18
 ---
 
