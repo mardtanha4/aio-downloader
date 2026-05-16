@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 08:18
+---
+
+## exoupdate_news — post 60443
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60443_1778906935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260515] EXO WEVERSE UPDATE #CHANYEOL 🔒
+
+"#2026.05.15 #CHANYEOL #SemogaBeruntung"
+
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60441
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60441_1778906937.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] Lay' Channel Instagram UPDATE
+
+"Hai semuanya, aku sudah sampai di Xinjiang ❤️"
+▶︎ •၊၊၊|။||။‌‌‌‌‌၊|• 0:11 "Oke, aku sudah melihat semua komentar kalian. Oke? Aku mengerti. Aku mendukung kalian. Aku mendukung kalian. Tunggu saja. Oke? Um, aku akan membuat sesuatu yang ajaib terjadi!!!"
+
+@.YuXING1012
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60440
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60440_1778906939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧 "📸" "Mari kita lihat hutannya!" (Konteks: Sama seperti idiom bahasa Inggris, ini adalah ungkapan dalam bahasa Korea yang berarti "daripada terjebak pada detail-detail kecil (pohon-pohon)." Ia mungkin mendorong…
+</div>
+
+## exoupdate_news — post 60439
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60439_1778906940.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] BAEKHYUN BUBBLE UPDATE 🐶🫧
+
+"📸"
+"Mari kita lihat hutannya!"
+
+(Konteks: Sama seperti idiom bahasa Inggris, ini adalah ungkapan dalam bahasa Korea yang berarti "daripada terjebak pada detail-detail kecil (pohon-pohon)." Ia mungkin mendorong penggemar untuk tetap berpikir positif.)
+
+engtrans : fourbaekpearl
+*exoljjang_ina*
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 04:54
 ---
 
