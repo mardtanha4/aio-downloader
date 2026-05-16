@@ -7,6 +7,60 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 23:17
+---
+
+## Dirty_Kids — post 389578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+اگه توافق نشود ایران روز های خیلی سختی در پیش دارد
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389577
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389577_1778960848.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابای گلشیفته هستن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389576
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389576_1778960849.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تامی رابینسون (فعال ملی‌گرای بریتانیایی) در تطاهرات لندن عکس شاهزاده رضا پهلوی بالا برد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389575
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389575_1778960851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سال 1374، کل پاساژ علاءالدین: 500 میلیون
+
+سال 1405، آیفون 17 پرومکس: 500 میلیون
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 22:09
 ---
 
