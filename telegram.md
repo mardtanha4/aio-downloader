@@ -7,6 +7,56 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 19:58
+---
+
+## exoupdate_news — post 60482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] KAI BUBBLE UPDATE 🐻🫧 
+
+00:15 KST
+"Chelsea
+vs. Manchester City di final [Piala FA]"
+"Euaaak"
+
+engtrans : 114message
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389560
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی یه مانکن حامله میشه!
+چجوری هیچ جاشون تپل نمیشه؟!!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389559
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389559_1778948923.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارزش دانلود: صفر
+فقط برای اونایی که نت اضافی دارن
+
+این قشنگ مشخص از خود وزارت‌اطلاعات دستور میگیره
+برای اولین یکی پیدا شد از رضا گلزار ضعیفتر فیلم بازی میکنه :/ بابا یذره تف میزدی به چشات خیس بشه اقلا
+
+جیندا جنگ میندازی گردن مردم؟ جنگی که کل دنیا درگیرن سیاست ابرقدرت‌ها داره عوض میشه بخاطرش
+
+تا دیروز هرکی یه فیلم میگرفت میریختن تو خونش میگفتن جاسوس، الان دیدن کسی نمیتونه بره تو جزیره خودشون مستند میسازن میدن به این پرستو‌ها کصونه‌واویلا بازی دربیارن
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:46
 ---
 
