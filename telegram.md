@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:59
+---
+
+## Dirty_Kids — post 389586
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389586_1778970577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا انفجار شدید در تأسیسات شرکت «تومر» در منطقه بیت‌شمش اسرائیل.
+این شرکت مرکز اصلی طراحی و تولید موتور پیشران انواع موشک‌های راهبردی است.
+
+خریت بچه شیعه یا حادثه؟
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 01:03
 ---
 
