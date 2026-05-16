@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 17:41
+---
+
+## exoupdate_news — post 60475
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+"MONSTER" ❤️‍🔥
+
+cr.xopinkpink
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] lay_studio SNS UPDATE
+
+"Mengubah kegiatan amal menjadi rangkaian kegiatan berkelanjutan, di mana setiap sumbangan menumbuhkan mimpi-mimpi kecil — @.layzhang selalu bergerak.
+
+Bahkan cahaya yang paling redup sekalipun, ketika disatukan, menjadi nyala api. Kebaikan meninggalkan jejaknya, dan waktu menjadi saksi."
+
+#LAY #LayZhang
+
+https://www.instagram.com/p/DYZcKn7m8Wy/?igsh=NDdlbmF6MGE3a3Jj
+
+https://x.com/i/status/2055607226736464214
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60461
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] lay_studio SNS UPDATE
+
+"Mengubah kegiatan amal menjadi rangkaian kegiatan berkelanjutan, di mana setiap sumbangan menumbuhkan mimpi-mimpi kecil — @.layzhang selalu bergerak.
+
+Bahkan cahaya yang paling redup sekalipun, ketika disatukan, menjadi nyala api. Kebaikan meninggalkan jejaknya, dan waktu menjadi saksi."
+
+#LAY #LayZhang
+
+https://www.instagram.com/p/DYZcKn7m8Wy/?igsh=NDdlbmF6MGE3a3Jj
+
+https://x.com/i/status/2055607226736464214
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60460
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60460_1778940683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+Sehun berfoto selfie dengan ponsel seorang penggemar yang beruntung hari ini! ㅠㅠ
+
+cr.onvid, @.xunhuas
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60459
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60459_1778940686.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+Video Proyek penggemar spesial yang disiapkan oleh EXO-L Thailand untuk konser EXhOrizon di Bangkok hari ini! 🥹✨
+
+Saat membawakan lagu ‘Don’t Go’: “❤️ ㅅㄹㅎㅈ (Saranghaja / Let’s love) ❤️”
+
+@.milkteus
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60455
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok
+
+Proyek penggemar spesial yang disiapkan oleh EXO-L Thailand untuk konser EXhOrizon di Bangkok hari ini! 🥺
+
+Saat membawakan lagu ‘Walk on Memories’: “EXO + EXO-L = 1”
+
+Saat membawakan lagu ‘Don’t Go’: “❤️ ㅅㄹㅎㅈ (Saranghaja / Let’s love) ❤️”
+
+@.xunhuas
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389557
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389557_1778940690.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات داره کم‌کم رو می‌شه. به خامنه‌ای گفته بودند جنگ نمی‌شه از لونه بیا بیرون که یک دفعه با یه تق... به هلاکت می‌رسه
+گوش کنید حتما
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389556
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389556_1778940691.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استوری جدید مشاور قالیباف :
+
+ای لشکر صاحب زمان آماده باش...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389555
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389555_1778940691.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سپاه یه فراخوان داد که افراد بالای 12 سال به عنوان رزمنده بیان دوره فعالیت دفاعی ببینن. یه دانش آموز 16 ساله به اسم محمدامین صابرکار میره توی دوره آموزشی شرکت کنه که در حین آموزش بر اثر شلیک خودی کشته میشه!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 16:14
 ---
 
