@@ -7,6 +7,239 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 16:14
+---
+
+## Dirty_Kids — post 389554
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389554_1778935485.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی @Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] WEVERSE REPLY
+
+🩵: Can I call you Jueun Noona?
+👾: I shall allow it.
+
+🩵: The 4th one is super cute......
+👾: You’re cuter..🫶
+
+🩵: Are those the desserts you want to eat in the 6th pic?
+Which one do you want the most??
+👾: Ice Supernovaaaaa
+👾: 🍦
+
+🩵: The song is Night Flight, I know everythingㅋ
+👾: Yooo, not bad.
+
+🩵: See? I told you you’ve been really cute lately, Jueun.
+👾: I seriously still don’t understand what being cute even means.
+👾: Kkyu.
+
+🩵: Guys, have you ever seen an idol as filial as this?
+👾: Yes mother, I am indeed a filial daughter~
+
+🩵: You’re already 20 now. The age to be cute has passedㅋ
+👾: No, I still have 7 months and 15 days left.
+
+🩵: Please describe your day in one sentence.
+👾: Hachu, try putting down your worries about the future for a moment too.
+
+───────
+
+🩵: Boleh aku manggil kamu Jueun Noona?
+👾: Aku izinkan.
+
+🩵: Yang ke-4 lucu banget......
+👾: Kamu yang lebih lucu..🫶
+
+🩵: Itu dessert yang pengen kamu makan di foto ke-6?
+Yang paling pengen dimakan yang mana??
+👾: Ice Supernovaaaa
+👾: 🍦
+
+🩵: Lagunya Night Flight ya, aku tahu semua kokㅋ
+👾: Yooo, lumayan juga kamu.
+
+🩵: Tuh kan, akhir-akhir ini Jueun lucu banget.
+👾: Aku bener-bener masih nggak ngerti arti "imut" itu apa.
+👾: Kkyu.
+
+🩵: Guys, pernah lihat idol seberbakti ini nggak?
+👾: Iya ibu, memang saya anak berbakti~
+
+🩵: Kamu sekarang udah 20 tahun. Umur buat jadi imut udah lewatㅋ
+👾: Nggak, aku masih punya 7 bulan 15 hari lagi.
+
+🩵: Ceritain harimu hari ini dalam satu kalimat dong.
+👾: Hachu juga coba buang dulu rasa khawatir kalian sebentar.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] WEVERSE REPLY
+
+🩵: You’re secretly sticking your tongue out at me.
+🫛: 😜
+
+🩵: Cutie!!!!!! ៷>ᴗ<៷
+🫛: Why did you call meee?
+
+🩵: Should I skip academy next week to go to the Sejong University festival?
+🫛: LOLLLLLLLLLLLLL
+🫛: 🤫
+
+🩵: Recommend me a way to confess.
+🫛: You should say it honestly.
+🫛: "Ian-ah, you’re so pretty and lovable!!"
+🫛: Like this.
+🫛: Now try it yourself.
+
+🩵: Can you recommend something to do on the weekend?🤔
+🫛: Riding a bike at the Han River.
+🫛: Or just keep walking🚶
+
+🩵: I’m going to work tomorrow, looking for an Ianie to cheer me on~~~~~~~~
+🫛: Yup, Ianie is here~~
+🫛: Going to work is no big deal!!
+🫛: Fighting💪🏻💪🏻💪🏻💪🏻💪🏻
+
+🩵: I was too busy watching Ian so I didn’t do my homework. I’m doomed, what do I do?
+🫛: LOL if you get scolded, so what.
+🫛: Just don’t tell your teacher it was because of me..
+
+🩵: What’s the most steps you’ve ever walked in a day??
+🫛: I never counted the steps, but I once walked for around 5 hoursㅋㅋㅋㅋㅋ
+
+───────
+
+🩵: Kamu diam-diam ngeledekin aku ya.
+🫛: 😜
+
+🩵: lucuu!!!!!! ៷>ᴗ<៷
+🫛: Kenapa manggil akuu?
+
+🩵: Haruskah aku bolos les minggu depan untuk datang ke festival Sejong University?
+🫛: WKWKWKWKWKWK
+🫛: 🤫
+
+🩵: Kasih rekomendasi cara nembak dong.
+🫛: Harus ngomong jujur dong.
+🫛: "Ian-ah, kamu cantik dan lovable banget!!"
+🫛: Kayak gini.
+🫛: Nah sekarang coba sendiri.
+
+🩵: Bisa rekomendasiin kegiatan buat weekend nggak?🤔
+🫛: Naik sepeda di Sungai Han.
+🫛: Atau jalan aja🚶
+
+🩵: Besok aku kerja, cari Ianie buat nyemangatin~~~~~~~~
+🫛: Yup, Ianie datang nih~~
+🫛: Kerja mah bukan masalah besar!!
+🫛: Semangat💪🏻💪🏻💪🏻💪🏻💪🏻
+
+🩵: Aku terlalu sibuk lihat Ian sampai nggak ngerjain PR. Hancur deh, gimana ini?
+🫛: Lol kalau dimarahin emang kenapa.
+🫛: Asal jangan bilang ke gurumu itu gara-gara aku aja..
+
+🩵: Paling banyak jalan kaki dalam sehari itu berapa langkah??
+🫛: Aku nggak pernah ngitung langkahnya, tapi pernah jalan sekitar 5 jamㅋㅋㅋㅋㅋ
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23299
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260516] WEVERSE REPLY
+
+🩵: Jiwoo, what are you looking forward to the most this summer?
+🍓: H2H comeback😘
+
+🩵: Which smell is harder to resist?
+Ramen vs chicken
+🍓: Ramen.
+🍓: ...
+
+🩵: Jiwoo, don’t you want to try a Harry Potter Bertie Bott’s jelly bean mukbang too?ㅋㅋ
+🍓: I will absolutely, absolutely, absolutely never eat that.
+
+🩵: How can I get better at taking pictures??
+My friends always ask me why I’m so bad at taking photos… sigh… Please teach me, Teacher Jiwoo!!!!!!!
+🍓: It’s talentㅎ
+
+🩵: Am I the only one who misses Jiwooㅜ
+🍓: I feel like I keep saying that I miss Hachu too though!!
+🍓: I miss you~~
+
+🩵: I’m feeling "relative babakdirara."
+🍓: Babakdirara...?
+🍓: What is that now?
+🍓: Why are you calling "relative deprivation" babakdirara ?
+🍓: Is this really a trend these days...?
+
+🩵: I’m curious who takes the best photos among the members,, tell us your TOP3 picks Jiwoo??
+🍓: For photos of me,
+🍓: Manager unnie is overwhelmingly number 1.
+🍓: ㅎㅎㅎ❤️
+🍓: It’s because I’m too hard to photograph perfectly...
+🍓: But if I had to choose: Jueun, Yeon, and Reumen!?
+🌴: OMG~~ Reumenping🥹🥹🥹
+🌴: Proud ping.
+
+───────
+
+🩵: Jiwoo, hal yang paling kamu tunggu musim panas ini apa?
+🍓: Comeback H2H😘
+
+🩵: Bau mana yang lebih susah ditahan?
+Ramen vs ayam goreng
+🍓: Ramen.
+🍓: ...
+
+🩵: Jiwoo, nggak tertarik coba mukbang jelly bean Harry Potter juga?ㅋㅋ
+🍓: Aku benar-benar, benar-benar, benar-benar nggak bakal makan itu.
+
+🩵: Gimana caranya biar jago motret??
+Teman-temanku selalu bilang kenapa aku jelek banget kalau ambil foto... ha...Tolong ajarin aku, Guru Jiwoo!!!!!!!
+🍓: Itu bakatㅎ
+
+🩵: Apa cuma aku yang kangen Jiwooㅜ
+🍓: Kayaknya aku juga terus bilang kalau aku kangen Hachu deh!!
+🍓: Aku kangen~~
+
+🩵: Aku merasakan "relative babakdirara."
+🍓: Babakdirara...?
+🍓: Itu apaan lagi?
+🍓: Kenapa "relative deprivation" jadi disebut babakdirara sih?
+🍓: Ini beneran tren sekarang ya..?
+
+🩵: Penasaran siapa member yang paling jago motret,, kasih TOP3 pilihan Jiwoo dong??
+🍓: Kalau foto aku ya,
+🍓: Manager unnie menang telak di posisi nomor 1.
+🍓: ㅎㅎㅎ❤️
+🍓: Soalnya aku terlalu susah difoto dengan sempurna...
+🍓: Tapi kalau harus pilih: Jueun,
+Yeon, dan Reumen!?
+🌴: Hah~~ Reumenping🥹🥹🥹
+🌴: Proud ping.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 15:06
 ---
 
