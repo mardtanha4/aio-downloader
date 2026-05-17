@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 18:13
+---
+
+## exoupdate_news — post 60531
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60531_1779029037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok Day 2
+
+Proyek penggemar spesial yang disiapkan oleh EXO-L Thailand untuk EXO selama EXhOrizon di Bangkok hari ini! 🥺🥹
+
+Saat lagu ‘Crazy’: “엑소 ❤️ 대박 (EXO ❤️ Daebak / Amazing)”
+
+Saat lagu ‘Crown’: “👑 KING 👑”
+
+@.xunhuas
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60528
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] ryu_vachirawich INSTAGRAM UPDATE with #CHANYEOL #SEHUN #SUHO
+
+"Kekuatan L-1485 Kembali! Terima kasih telah kembali, dan kami akan menunggu kunjungan Kalian berikutnya! 🙏🏽:)"
+
+https://www.instagram.com/p/DYbsfubkrr0/?igsh=MXI3OXBlbXhrZ3dmeA==
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] lay_studio SNS UPDATE
+
+"Dengan keyakinan yang tak tergoyahkan, @.layzhang menghormati tradisi dan merangkul kekuatan budaya. Keindahan oriental berkembang tanpa henti di setiap momen yang halus. Dengan keyakinan yang tak tergoyahkan, @layzhang menghormati tradisi dan merangkul kekuatan budaya.
+Keindahan oriental berkembang tanpa henti di setiap momen yang halus."
+https://www.instagram.com/p/DYcMGgzlFOA/?igsh=MW11czRkZW9tZ2RycQ==
+
+https://x.com/i/status/2055999593369018720
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] lay_studio SNS UPDATE
+
+"Dengan keyakinan yang tak tergoyahkan, @.layzhang menghormati tradisi dan merangkul kekuatan budaya. Keindahan oriental berkembang tanpa henti di setiap momen yang halus. Dengan keyakinan yang tak tergoyahkan, @layzhang menghormati tradisi dan merangkul kekuatan budaya.
+Keindahan oriental berkembang tanpa henti di setiap momen yang halus."
+https://www.instagram.com/p/DYcMGgzlFOA/?igsh=MW11czRkZW9tZ2RycQ==
+
+https://x.com/i/status/2055999593369018720
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389618
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژیم آخوندها اگر توانش را داشتند، اکسیژن را روی مردم ایران می بستند و به نیروهای خودی «اکسیژن پرو» می‌دادند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏به عنوان یه روانشناس می‌تونم بگم که، آدم‌ها معمولاً خشم‌شون رو سر کسانی که واقعاً مستحق اون هستن خالی نمی‌کنن، بلکه روی کسانی خالی می‌کنن که مطمئنن دوست‌شون دارن و در نهایت اون‌ها رو می‌بخشن.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از جمله [بذار تکلیف جنگ معلوم شه، بعد] حامله ام.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قبلا کس گاو برای خودش شخصیتی داشت، الان شده چند گیگ اینترنت و چند دقیقه ریلز دیدن تو اینستا
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23402
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23402_1779029038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #CARMEN WEVERSE MOMENT UPDATE
+
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] @asea_official TWITTER UPDATE
+
+ASEA 2026 DAY 2 Audience View CAM📹
+#하츠투하츠 - #RUDE!
+
+See you again at an even more amazing award show!👋
+
+🏆𝐀𝐒𝐄𝐀 𝟐𝟎𝟐𝟔🏆
+📅 2026.05.16(토) - 17(일)
+📍 BELLUNA DOME
+
+#ASEA #ASEA2026
+#AsiaStarEntertainerAwards
+#하츠투하츠 #Hearts2Hearts @Hearts2Hearts
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23393
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #JUUN WEVERSE UPDATE
+
+Coming back here brought back so many memories from last year, so it felt even more fun and emotional.
+I’m really thankful that we were able to leave with two awards this time! Thank you so, so much, Hachu🤍
+We’re working hard preparing for our comeback so that we can become even bigger artists in the future, so please look forward to it!
+Thank you, I love you forever 🩵
+
+Datang kembali ke sini membuat banyak kenangan dari tahun lalu teringat lagi, jadi rasanya lebih menyenangkan sekaligus mengharukan.
+Aku benar-benar bersyukur karena kali ini kami bisa pulang membawa dua penghargaan! Terima kasih banyak banget, Hachu🤍
+Kami sedang bekerja keras mempersiapkan comeback supaya bisa menjadi artis yang lebih besar lagi ke depannya, jadi mohon nantikan ya!
+Terima kasih, aku mencintai kalian selamanya 🩵
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 16:53
 ---
 
