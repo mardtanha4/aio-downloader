@@ -7,6 +7,193 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 20:09
+---
+
+## Dirty_Kids — post 389629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرخی در خبرها زدم ببینم اوضاع خبری رسانه‌ها از چه قراره که دریا دریا کسشر موج می‌زد،
+
+اول اینکه رسانه‌های روافض نوشتن که وزیر کشور خایه‌مال پاکستان یک دیدار خصوصی با پوزیده داشته که بیش از ۹۰ دقیقه طول کشیده و در پایان نهج‌البلغه گویان از جلسه خارج شده و به دیدار ممدباقر رفته که در اون جلسه هم یک بار دیگه چارچوب مذاکرات رو بهش توضیح دادن،
+
+از طرفی دیگه صبح امروز به سمت کشور قرمدنگ امارات پهپاد پراکنی شده که ظاهراً به محوطه‌ی داخلی نیروگاه هسته‌ای براکه هم اصابت داشته که بعضی از تحلیلگران اعتقاد دارن روافض از ترس کونشون که می‌دونن حمله‌ی آمریکا قریب‌الوقوعه، حمله‌ی پیش‌‌دستانه کرده که شیر خدا و یارانش رو بترسونه.
+
+پایان اخبار کسشر.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389628
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389628_1779035997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران ۱۹۷۱ تیم والیبال زنان پاس تهران
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 
+💳تسویه حساب دلاری سریع 💊بیمه شرط میکس 
+⚠️فروش شرط 
+🔔ویرایش شرط                    
+3️⃣
+2️⃣ 
+🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389626
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389626_1779035997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇
+
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+## Dirty_Kids — post 389625
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389625_1779035998.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا تازه هنرپیشه‌هاشون هستن:
+اون مجریاتون کونشونم نمیتونن تکون بدن
+
+ارزش دانلود: اگه نت اضاقی داری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه تنِ ماهی خریدم ۳۰۰ تومن!
+فک کنم توش پری دریایی باشه.
+منتظرم خونه‌مون خالی شه درشو باز کنم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389623
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389623_1779035999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسرا میتونن اینجوری نگاهتون کنن و فکر کنن روغن ماشین چقدر گرون شده خارشو گاییدم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389622
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389622_1779035999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G27
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389621
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389621_1779036000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌شیعه:
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 19:14
 ---
 
