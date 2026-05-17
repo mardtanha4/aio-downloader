@@ -7,6 +7,175 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 11:14
+---
+
+## exoupdate_news — post 60492
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60492_1779003860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok Day 2 <Sound Check>
+
+
+cr.SomeMoreForMe
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60491
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60491_1779003863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] EXO OFFICIAL SNS UPDATE
+
+EXhOrizon in #BANGKOK DAY 1 👑🎈
+ 
+https://www.instagram.com/p/DYbYqe7qZuz/?igsh=MTJndWJ4cW5yYTRvcw==
+
+https://x.com/i/status/2055882652096573870
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60490
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60490_1779003865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] EXO OFFICIAL SNS UPDATE
+
+EXO PLANET #6 – EXhOrizon in #BANGKOK DAY 1🩶
+
+https://www.instagram.com/p/DYbZWdQqTnD/?igsh=NDZyNmtjdHV0anJh
+
+https://x.com/i/status/2055882901125058763
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از جمهوری اسلامی فقط؛
+
+۴۰۰ کیلو اورانیوم مونده با یه مشت گشنه‌ی کلاشینکف به دست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاهیا در برابر مردم بی دفاع
+&
+سپاهیا در برابر ارتش دیگر کشورها
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«حالا یه بار کافه نری که نمیمیری»، «چندتا آهنگ نتونی تو اسپاتیفای گوش ندی که نمیمیری»
+اتفاقاً کم‌کم میمیریم. زندگی فقط زنده بودن نیست؛ همین خوشی‌های کوچیکه: قهوه، موسیقی، دورهمی، شب‌گردی، خریدای الکی. وقتی یکی‌یکی ازت گرفته بشن، فقط نفس میکشی
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389594
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389594_1779003866.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همینطور که در فیلم محمد رسول الله هم میبینید در جنگ بدر؛ محمد به
+سپاهیانش دستور میده که چاههای آب رو با سنگ پرکنن و آب رو به روی دشمنانش میبنده
+
+چرا وقتی محمد این کار رو میکنه اسمش میشه تاکتیک جنگی ،اما حدود ۵۹ سال بعد وقتی همین کاررو سپاه یزید انجام میده اسمش ظلم و ستم هست؟🖕🖕
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#YE_ON & #IAN at ASEA 2026 (Red Carpet)
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#STELLA & #A_NA at ASEA 2026 (Red Carpet)
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#YUHA & #JUUN at ASEA 2026 (Red Carpet)
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#JIWOO & #CARMEN at ASEA 2026 (Red Carpet)
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23307
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23307_1779003867.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[VIDEO]
+
+#HEARTS2HEARTS at ASEA 2026
+(Red Carpet)
+
+Cr. ukh_tami
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 08:37
 ---
 
