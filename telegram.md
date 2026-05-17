@@ -7,6 +7,51 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 22:14
+---
+
+## Dirty_Kids — post 389636
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389636_1779043451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هر چی بگم از طنز ماجرا کم نمیشه؛ توی اصفهان برای زنای بی حجابی که رفتن خایمالی و توی تجمعات شبانه حضور داشتن، احضاریه دادگاه ارسال شده :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389635
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389635_1779043451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئو وایرال شده از پرستو‌های حکومت؛
+بی‌حجاب‌ها اومدن صف اول و چادری‌ها پشت سرشونن..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389634
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389634_1779043452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+برای ایران، ساعت در حال تیک‌تاک کردنه و بهتره خیلی سریع دست‌به‌کار بشن؛
+
+وگرنه چیزی ازشون باقی نمی‌مونه، زمان کاملاً حیاتی و تعیین‌کننده‌ست! 
+⏳
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 21:11
 ---
 
