@@ -7,6 +7,80 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 08:37
+---
+
+## exoupdate_news — post 60488
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60488_1778994434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] kimjuncotton INSTAGRAM STORY UPDATE
+
+
+
+https://www.instagram.com/stories/kimjuncotton/3898427800432809832?utm_source=ig_story_item_share&igsh=bXlqZHlpZ3hoMHp0
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60487
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60487_1778994436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] mewsuppasit Instagram Story UPDATE With #SUHO
+
+
+https://www.instagram.com/stories/mewsuppasit/3898409818960724774?utm_source=ig_story_item_share&igsh=Nmhza3g4bzdqbzBw
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] lay_studio SNS UPDATE
+
+"Bos @.layzhang Seri Vlog Mini Cannes 📷
+
+Di balik karpet merah dan tepuk tangan, terdapat ritme tenang yang khas miliknya."
+
+#LAY #LayZhang
+
+https://www.instagram.com/reel/DYZ2OaoAAJ4/?igsh=bTVwd3o1M3Jsejhm
+
+https://x.com/i/status/2055665023251513606
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260516] mewsuppasit INSTAGRAM UPDATE With #SUHO
+
+"Aku selalu mendukungmu dan selamat ulang tahun sebelumnya 🎂🐰"
+
+https://www.instagram.com/p/DYZ7Hy1Gb1K/?img_index=3&igsh=cXp1YWFkcGRyZmZ4
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] SEHUN BUBBLE UPDATE 🐥🫧
+*latepost
+
+02:59 ICT
+“Semoga mimpi indah”
+
+*@exoljjang_ina*
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 04:55
 ---
 
