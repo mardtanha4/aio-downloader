@@ -7,6 +7,57 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 23:22
+---
+
+## Dirty_Kids — post 389639
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389639_1779047547.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خسته نشد از عن خوردن؟
+
+اگه وقتت‌رو میذاشتی بجای گوه خوردن رو شغلت الان بجای دوتا آهنگ کسشر چهارتا آهنگ کسسر داشتتی
+
+عن‌آقا آخه به تو نمیرسه حتی اسم اینارو بیاری چه برسه گوه‌شونو بخوری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389638
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389638_1779047548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اکانت رسمی اسرائیل به فارسی: شایدم اصلا چیزی از جنازه‌ی خامنه ای برای دفن کردن باقی نمونده...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389637
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389637_1779047548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقاد شدید آیسان از امین فردین
+
+
+این امین فردین مگه سیاسی شده؟! پسر اینا هنوز منقرض نشدن...
+
+ناموسا کسی که داداشی پویان مختاری و ساشا سبحانی بوده‌رو هنوز دنبال میکنن برید واشقانی رو دنبال کنید اون اقلا صادقانه میگه خارکسده هستش
++ کلا اکیپ اینا همه صادراتی بودن جیب ملت زدن! (دنیا، میلاد حاتمی، پویان مختاری، امین فردین، ساشا، نیلی و...)
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 22:14
 ---
 
