@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 03:11
+---
+
+## exoupdate_news — post 60561
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60561_1779061271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] EXO OFFICIAL SNS UPDATE
+
+" EXhOrizon in #BANGKOK DAY 2 👍👍"
+ 
+https://www.instagram.com/p/DYceId0KOIy/?
+
+https://x.com/i/status/2056034117704454515
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60560
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] OP membagikan video saat hpnya dipegang SEHUN 😭😭😭😭😍
+
+https://www.instagram.com/reel/DYcQyaeuvcU/?igsh=bGltMHFuenJyOGVt
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] EXO OFFICIAL SNS UPDATE
+
+EXO PLANET #6 – EXhOrizon in #BANGKOK DAY 2🩶
+
+https://www.instagram.com/p/DYceZgvGhSc/?
+
+https://x.com/i/status/2056034235379790077
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60556
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] dunknatachai INSTAGRAM UPDATE With #KAI
+
+" Welcome back to Thailand✌🏻🔥 #EXhOrizon_in_BANGKOK "
+
+https://www.instagram.com/p/DYceu_rGETE/?
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60555
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60555_1779061273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] jeep_tumwattana INSTAGRAM UPDATE With #SUHO
+
+" Aku akan selalu ada untukmu, bro @kimjuncotton
+
+Selamat ulang tahun lebih awal ❤️😊 "
+
+https://www.instagram.com/p/DYbrZ_KxJ33/?igsh=a3JrYmJmZDB1Zm93
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] lay_studio SNS UPDATE
+
+" Dengan keyakinan yang tak tergoyahkan, @layzhang menghormati tradisi dan merangkul kekuatan budaya. Keindahan oriental berkembang tanpa henti di setiap momen yang halus. #LAY #LayZhang "
+
+https://www.instagram.com/p/DYcOkAfFJYf/?igsh=b2pzMnZhNjdvZDhl
+
+https://x.com/i/status/2055999593369018720
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] lay_studio SNS UPDATE
+
+" Dengan keyakinan yang tak tergoyahkan, @layzhang menghormati tradisi dan merangkul kekuatan budaya. Keindahan oriental berkembang tanpa henti di setiap momen yang halus. #LAY #LayZhang "
+
+https://www.instagram.com/p/DYcOkAfFJYf/?igsh=b2pzMnZhNjdvZDhl
+
+https://x.com/i/status/2055999593369018720
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389657
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389657_1779061274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389656
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389656_1779061275.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A27
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389655
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389655_1779061275.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389654
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389654_1779061276.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان اگه پولتون زیادی کرده و نمیدونین باهاش چیکار کنین، کاخ گوتیک امیردشت با قیمت مفتِ 1500 میلیارد به فروش میرسه، حتما بخرین.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389653
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389653_1779061277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زنجیره بی‌پایانِ پیروزی‌های آخوند برشمشیر 🤭🧩
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 02:07
 ---
 
