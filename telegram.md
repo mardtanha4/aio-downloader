@@ -7,6 +7,211 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 15:28
+---
+
+## exoupdate_news — post 60500
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60500_1779019095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok Day 2
+
+Sehun mengambil ponsel seorang penggemar dan merekam dirinya sendiri saat bernyanyi membawakan lagu 'Run' di konser hari ini! ㅠㅠ
+
+cr. onvid, milkteus
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389609
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389609_1779019098.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بش از ۸۰ روز‌ از قطع اینترنت بین‌الملل تو ایران می‌گذره؛
+
+پزشکیان اومد با سیم‌کارت سفید تو نرم افزاری که خودشون فیلترش کردن، یه توییت‌ زد و مدعی شد که؛ مسئولین وزارت ارتباطات تمام تلاششونو کردن تا مردم به اینترنت با کیفیت دسترسی داشته باشن و در‌آخر هم روز جهانی ارتباطات‌رو‌ تبریک گفت.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389608
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389608_1779019098.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد طرف میاد نطق می‌کنه که برید کتاب بخونید، مردم آگاه نیستند! ببین اینو ابله، مردم ایران اینجوری هستن، پتکی که این مهندس جوان ایرانی به سر رژیم زد، هیچکی نزد. آینده ایران رو اینا می‌سازن، با سواد و اهل کار.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389607
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389607_1779019099.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کتاب دینیه یا داستان‌های پورنهاب؟
+
+کتاب وسائل الشیعه، جلد ۱۴؛ امام رضا: هر وقت خواستی با زنت رابطه داشته باشی، فورا دخول نکن، اول با حرفای جنسی تحریکش کن و بعدش سینه هاشو فشار بده!
+با اینکار اون کاملا آماده میشه و شهوت از چشماش فوران میکنه، بعدش ازت میخواد و خواهش میکنه که باهاش رابطه برقرار کنی!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389606
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389606" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389605
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389605_1779019100.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389604
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏احساس میکنم یه عده هنوز نفهمیدن چه اتفاقی افتاده:
+یه حکومتی هست که در عرض ۴ ساعت حداقل ۴۰ هزار نفر رو قتل عام کرده، به مجروحین توی بیمارستان تیر خلاص زده، به پرستارها تجاوز کرده، سر از تن معترضین جدا کرده، جسدها رو انبار کرده و خونواده‌ها رو وادار کرده بگردن لا به لای هزاران جسد ببینن جگرگوشه‌شون پیدا میشه یا نه، ازشون برای تحویل جنازه پول گرفته، هر روز هم یه عده رو بعد از کلی شکنجه داره اعدام میکنه.
+بزرگترین قتل عام دوران معاصر ایران جلوی چشم ما اتفاق افتاده و تنها غلطی که میتونیم بکنیم اینه که نذاریم فراموش بشه، به حاشیه بره و در نهایت ج‌ا قسر در بره.
+
+خیلی باید کودن یا پلشت باشید که جز ریشه کن شدن این حکومت چیزی بخواید و با کسی جز حامیان این حکومت دعوا کنید و اگر مخاطبین زیادی دارید از تریبونتون استفاده دیگه‌ای بکنید.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#HEARTS2HEARTS at ASEA 2026
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23354
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23354_1779019101.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] @asea_official TWITTER UPDATE
+
+🎉 Congratulations on winning at ASEA 2026! 🎉
+
+👑THE PLATINUM👑
+Hearts2Hearts
+
+🏆𝐀𝐒𝐄𝐀 𝟐𝟎𝟐𝟔🏆
+📅 2026.05.16(토) - 17(일)
+📍 BELLUNA DOME
+
+#ASEA #ASEA2026
+#AsiaStarEntertainerAwards
+#하츠투하츠 #Hearts2Hearts @Hearts2Hearts
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[VIDEO]
+
+Asia Star Entertainer Awards (ASEA)
+
+🎶 RUDE!
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[VIDEO]
+
+Asia Star Entertainer Awards (ASEA)
+
+🎶 Intro + FOCUS
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆 Congratulations Hearts2Hearts for winning“The Platinum (Bonsang)” at the 2026 Asia Star Entertainer Awards (ASEA)
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 14:19
 ---
 
