@@ -7,6 +7,217 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 16:53
+---
+
+## exoupdate_news — post 60503
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] zkdlin UPDATE
+
+#광고 #lacoste #라코스테 #모든폴로의시작 🐊
+
+https://www.instagram.com/p/DYcI6JUoD5i/?igsh=NHZ6MjVjZ2FqNXph
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60502
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60502_1779024229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok Day 2
+
+Proyek penggemar lainnya dari EXO-L Thailand untuk EXO selama 'Crown' hari ini ✨
+
+“👑 KING 👑”
+
+cr. aahgobhiran, milkteus
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60501
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60501_1779024233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] PREVIEW #EXO Planet 6: EXhOrizOn in Bangkok Day 2
+
+Para anggota EXO dan EXO-L menyanyikan lagu ‘Selamat Ulang Tahun’ untuk Junmyeon hari ini! Mereka juga meneriakkan “Kim Junmyeon” saat ia berlari ke panggung untuk memberikan ciuman terbang dan membungkuk kepada para penggemar~
+
+🐻 Selamat Ulang Tahun, hyung!
+👩🏻 *terjemahan ke bahasa Thailand*
+🐥 *menyalin apa yang dikatakan penerjemah*
+
+cr. domonxoxo, xunhuas
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389614
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389614_1779024236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حامی تروریسم دیروز وسط گهخوریش توسط پلیس شریف فرانکفورت بدرقه شد 😁
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مَکرون دخترتو میگاد، جفتکتو به پهلوی میزنی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389612
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهزاد فراهانی، این کفتار پیرِ به بچه‌های ۱۷-۱۸ ساله که دست خالی می‌رن جلوی دوشکا:
+«اگه بیضه دارید بیاید انقلاب کنید!»
+
+تو که ۴۷ سال برای چهار تا نقش‌‌تخمی‌بیضه‌مالی آخوند رو کردی میدونی که‌‌ اگه محمدرضا شاه فقید فقط یک صدم جنایاتی که آخوندای عزیزت کردن رو کرده بود، حجم بیضه‌های تو و رفقات هم مشخص می‌شد
+
+حروم‌زاده!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏قذافی وقتی می‌خواسته زنش رو لوس کنه لیبی به لاباش می‌ذاشته.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389610
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389610_1779024238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرادویسی، تحلیلگر اینترنشنال:
+آمریکا اگه جمهوری اسلامی رو سرنگون نکنه؛
+
+روسیه با خودش میگه آمریکا حتی نتونست جمهوری‌اسلامی رو سرنگون کنه پس من اوکراین رو نابود میکنم وهمینطور علیه بقیه میرم جلو
+چین هم با خودش میگه آمریکا نتونست جمهوری‌اسلامی رو سرنگون کنه پس منم تایوان رو نابود میکنم چون کاری از دست آمریکا برنمیاد
+کره‌شمالی هم با خودش میگه آمریکا نتونست جمهوری‌اسلامی رو سرنگون کنه، پس منم میتونم با موشک به ژاپن و کره‌جنوبی حمله کنم و کاری از آمریکا برنمیاد.
+و حتی مثل جمهوری‌اسلامی که تنگه هرمز رو نابود کرد منم میتونم تنگه کُره رو با موشک‌پراکنی ناامن کنم.
+پس به این دلایل آمریکا مجبوره که جمهوری‌اسلامی رو سرنگون کنه.
+
++ خلاصش یعنی، هژمونی امریکا نابود میشه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23388
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #YUHA WEVERSE UPDATE
+
+We received two awards todayyy💕
+It’s all thanks to Hachu!!!
+Hachu are the best👍👍💖
+Today’s special MC was Yuha💕
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23383
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #A_NA WEVERSE UPDATE
+
+Hachu!!!
+We received two awards at ASEA 2026!!
+It’s all thanks to Hachu😚
+I’m always so thankful, and I love you🤍
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #HEARTS2HEARTS TWITTER UPDATE
+
+Hearts2Hearts at ASEA 2026🏆🏆🩵
+
+#Hearts2Hearts #하츠투하츠 #H2H
+#ASEA2026
+#ASEATHEBESTGROUPFEMALE
+#ASEATHEPLATINUM
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #IAN WEVERSE UPDATE
+
+ASEA 2026🫶🏻
+I had so much fun.
+At the award show where we received our very first Rookie Award last year, we were able to receive another amazing award once again thanks to Hachu.
+Because of you, I think I had such a happy day.
+Thank you so, so much🙇
+Please wait just a little longer for our upcoming comeback too🤫🫦
+To everyone who supported us today, thank you so much🩷🫶🏻
+
+ASEA 2026🫶🏻
+Aku bersenang-senang banget hari ini.
+Di acara penghargaan tempat kami menerima Rookie Award pertama tahun lalu, kami bisa menerima penghargaan keren lainnya sekali lagi berkat Hachu.
+Berkat kalian, sepertinya aku menjalani hari yang sangat menyenangkan.
+Terima kasih banyak banget🙇
+Tolong tunggu sedikit lagi untuk comeback kami yang akan datang juga ya🤫🫦
+Untuk semua orang yang sudah mendukung kami hari ini, terima kasih banyak🩷🫶🏻
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23373
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] #JIWOO WEVERSE UPDATE
+
+Hachuu!!!! Hari ini di ASEA 2026,
+kami menerima dua penghargaan besar!!✨🏆🥳
+[ASEA THE BEST GROUP (FEMALE)]
+[ASEA THE PLATINUM]
+
+Tahun lalu di ASEA, kami menerima Rookie Award pertama sejak debut, dan setahun kemudian aku sangat bahagia dan bersyukur karena bisa kembali menyapa kalian dengan penghargaan yang begitu berarti.
+
+Aku rasa momen ini bisa terjadi karena ada fans yang selalu percaya dan mendukung kami🤍
+
+Ke depannya juga, kami akan terus bekerja keras agar menjadi tim yang pantas menerima penghargaan ini dan membalasnya dengan musik serta penampilan yang lebih baik lagi!
+Terima kasih karena hari ini juga sudah bersama kami🥹🫶
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 15:28
 ---
 
