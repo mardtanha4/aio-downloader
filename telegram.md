@@ -7,6 +7,198 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 19:14
+---
+
+## exoupdate_news — post 60538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] SUHO BUBBLE UPDATE 🐰🫧 22:38 KST “Kyaaa~” (berteriak kegirangan) “Itu susah banget😂” “🤧” “Dasar lemah..” “ㅋㅋㅋcantik yang lemah/sakit-sakitan” “🐣” “Bagaimana ini bisa terjadi?” 23:19 KST “Tapi aku harus mempersiapkan pesta ulang tahun😢” “Kita…
+</div>
+
+## exoupdate_news — post 60537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260517] SUHO BUBBLE UPDATE 🐰🫧
+
+22:38 KST
+“Kyaaa~” (berteriak kegirangan)
+“Itu susah banget😂”
+“🤧”
+“Dasar lemah..”
+“ㅋㅋㅋcantik yang lemah/sakit-sakitan”
+“🐣”
+“Bagaimana ini bisa terjadi?”
+
+23:19 KST
+“Tapi aku harus mempersiapkan pesta ulang tahun😢”
+“Kita ngobrol santai, meniup lilin, lalu pulang saja..”
+“Padahal aku sudah bilang nggak mau pesta ulang tahun sejak tadiㅜㅋㅋㅋ”
+“Ughhㅜ”
+
+engtrans: SUHObubble
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260519] KAI BUBBLE UPDATE 🐻🫧 09:00 PM KST "Kami kalah" " Ini bukan sesuatu yang bisa dimaafkan dengan "Tidak apa-apa, hal seperti ini memang terjadi" " "Hal seperti ini memang terjadi" hanya berlaku jika hal seperti ini terjadi sangat jarang "…
+</div>
+
+## exoupdate_news — post 60532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260519] KAI BUBBLE UPDATE 🐻🫧
+
+09:00 PM KST
+"Kami kalah"
+" Ini bukan sesuatu yang bisa dimaafkan dengan "Tidak apa-apa, hal seperti ini memang terjadi"
+" "Hal seperti ini memang terjadi" hanya berlaku jika hal seperti ini terjadi sangat jarang "
+"Jika hal seperti ini terjadi setiap hari, maka itu memang sifat alami [tim]"
+"Tokoh utama yang sempurna"
+"Tamat"
+"[Dari] seorang penggemar Chelsea"
+"Aku harus makan sekarang setelah konser selesai"
+"Aku akan makan, mencuci piring, dan semoga merasa sedikit lebih baik/lebih bersemangat"
+
+T/N: Chelsea kalah dari Man City di final Piala FA
+
+engtrans : 114message
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389620
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389620_1779032675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابای حرومزاده گلشیفته فراهانی جنده به این مردم که اینجوری با دستای خالی جلوی گلوله مقاومت کردن میگه بیضه ندارید!
+
+جناب فراهانی خارکصده ما اتفاقا بیضه داریم، خوبشم داریم. ما بیضه رو داریم ولی شما و دخترتون بیضه رو لیس می‌زنید. شما مال آخوند رو می‌لیسید و دخترتون بیضه‌های مکرون رو قورت می‌ده!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389619
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی: آقا من واقعا حوصله‌ام سر رفته، چه غلطی بکنیم؟
+مسعود رجوی: تو کلا دو ماهه اومدی، من و این موسی صدر بدبخت چی بگیم که چندین ساله اینجاییم؟
+
+امام زمان (عج): سه‌تاتون خفه بشین!!!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#CARMEN Changed Weverse Profile and Nickname to Nyoman
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] WEVERSE REPLY
+
+🌻: I was so nervous when giving the acceptance speech.... hehe
+
+🩵: Aren’t you ordering steak today? lol
+🌻: I should raid the convenience store instead~
+
+🩵: Yuna, you were looking at Haram proudly while she was MC-ing lol
+🌻: Our unnie is so admirable😘
+
+───────
+
+🌻: Tadi aku gugup banget waktu ngomong pidato kemenangan....hehe
+
+🩵: Hari ini nggak pesan steak? lol
+🌻: Kayaknya aku mau nyerbu minimarket~
+
+🩵: Yuna, tadi kamu ngeliatin Haram dengan bangga pas dia jadi MC lol
+🌻: Unnie kita memang membanggakan😘
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] WEVERSE REPLY
+
+🌴: I’ll upload the selfies separately later hehe
+
+🩵: Is there anything fun you want to share with Hachu?
+🌴: Today Ye-on said we should do a set log hehe
+
+🩵: Can you show Hachuu the set log you did?
+🌴: Yup yup, I’ll show it later lol
+
+🩵: Aww.. I love you..
+🌴: Ooh~ nice
+
+🩵: Umm.... kimchi jjigae...?
+🌴: Pardon?
+
+🩵: Reumenping, you worked hard today~ congrats on the 2 awards~ as expected, our H2H are amazing
+🌴: It’s all thanks to Hachuu!!!! 🥹🥹🥹🥹🥹🥹🥹🥹🥹🩵🩵🩵🩵🩵🩵
+🌴: Thank you ~~ love you💖
+
+───────
+
+🌴: Nanti selfie-nya aku upload terpisah ya hehe
+
+🩵: Ada hal seru yang pengen kamu bagiin ke Hachu?
+🌴: Hari ini Ye-on ngajak buat bikin set log hehe
+
+🩵: Bisa tunjukin set log-nya ke Hachu?
+🌴: Iya iya, nanti aku tunjukin wkwk
+
+🩵: Aduh.. I love you..
+🌴: Ooh~ nice
+
+🩵: Eumm.... kimchi jjigae...?
+🌴: Hah?
+
+🩵: Reumenping, hari ini kerja keras ya~ selamat atas 2 penghargaan~ memang H2H kita terbaik
+🌴: Ini semua berkat Hachuu!!!! 🥹🥹🥹🥹🥹🥹🥹🥹🥹🩵🩵🩵🩵🩵🩵
+🌴: Makasih ~~ sayang kalian💖
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23403
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23403_1779032677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260517] WEVERSE COMMENT
+
+🌴: MC Yuha, terima kasih banyak atas kerja kerasmu~~~~💖
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 18:13
 ---
 
