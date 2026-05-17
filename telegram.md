@@ -7,6 +7,59 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:11
+---
+
+## Dirty_Kids — post 389633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا حالا رفتی جنازه دخترت رو تحویل بگیری
+بهت بگن شیرینی بگیر ؟
+بعد تو بگی برای جنازش؟
+اونم بگه نه برای بکارتش
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تلگرام تو این سیزده سال، به اندازه‌ی یک روز پیام‌رسان‌های داخلی قطعی و اختلال نداشته.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏Lesson :
+
+جایی که بهت میگن «اگه دوست داری بیای، بیا»، نرو.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتیکه‌ی توده‌ای پلشت فکر کرده به جای «تخم» بگه «بیضه» خیلی مودب و با اخلاقه! دوزاری هستی مثل بقیه‌ی خون‌شورای هم‌صِنفت.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:09
 ---
 
