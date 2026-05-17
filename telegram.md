@@ -7,6 +7,77 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 02:07
+---
+
+## Dirty_Kids — post 389652
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389652_1779057433.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تخمش از ممه‌های دخترت بزرگتره
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389651
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389651_1779057434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما چپولایی که کل شجاعتتون این بوده تو خونه‌های تیمی، زناتون رو با هم ضربدری عوض بدل کنید، جلوی این نسل از خایه حرف نزنید مادرجنده‌های زن و دختر خراب!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389650
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389650_1779057435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس جدید بیلی ایلیش :)
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بدتر از خود مقوله‌ی vpn خریدن اینه که حتما باید vpn داشته باشم که بتونم دوباره بخرم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تخم ما از ممه دخترت بزرگتره
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389647
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389647_1779057436.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال رگباری گاییده. بیست سی‌تا پست پشت هم گذاشته تا الان. @Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 01:09
 ---
 
