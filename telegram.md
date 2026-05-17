@@ -7,6 +7,61 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 04:55
+---
+
+## Hearts2HeartsUpdateSM — post 23305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗓 HEARTS2HEARTS SCHEDULE TODAY
+
+[ Sunday, 17 May 2026 ]
+
+𖤐 ASIA STAR ENTERTAINER AWARDS (ASEA) 2026
+
+• Red Carpet
+⏰ 14.00 JST | 12.00 WIB
+
+• Main Awards
+⏰ 17.30 JST | 15.30 WIB
+
+→ Streaming link:
+• Chzzk (Korea)
+🔗chzzk.naver.com
+• Naver TV (Worldwide except Taiwan)
+🔗tv.naver.com
+• U-NEXT (Japan)
+🔗video.unext.jp
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23304
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23304_1778981103.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+Girl Group Individual Brand Reputation Rankings for May 2026
+
+#55 IAN
+#66 JIWOO
+#76 STELLA
+#80 YUHA
+#85 A-NA
+#93 CARMEN
+#94 YE-ON
+#95 JUUN
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 02:59
 ---
 
