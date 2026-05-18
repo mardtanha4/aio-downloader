@@ -7,6 +7,117 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 09:28
+---
+
+## Hearts2HeartsUpdateSM — post 23425
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23425_1779083898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] WEVERSE REPLY
+
+🩵: #JUJUR JANGGAL💜
+🧁: #JUJUR JANGGAL
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#HEARTS2HEARTS at Asia Star Entertainer Awards (ASEA) 2026.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #STELLA WEVERSE UPDATE
+
+Hachu 🩷
+We received two awards at ASEA!
+As expected, Hachu is the best...... thank you so, so much.
+From now on, Hearts2Hearts will continue to grow and rise even higher!
+We love you and thank you 🥹🤍
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23417
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23417_1779083899.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #YE_ON WEVERSE UPDATE 🤍ASEA🤍 We couldn’t take a group photo together, so it’s a bit disappointing, but this is a record from yesterday 🫶 Next time, we’ll come back with an even more crowded and lively one! 🤍ASEA🤍 Kami tidak bisa mengambil foto…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23416
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] WEVERSE REPLY
+
+🍓: Since it’s Monday, I came to see you first thing in the morning😘
+🍓: Everyone, let’s start today full of energy!
+
+🩵: Monday is a day I really hate, what do you think, Jiwoo??
+🍓: Honestly, I don’t really care about the day of the week 🫪🫪
+🍓: But since Hachu don’t like it, then I don’t like it either
+🍓: So I came here~~
+
+🩵: Who took the photo?
+🍓: Remen 🌴🤍
+🍓: Pretty good, right?!
+🌴: 😎😎😎
+
+───────
+
+🍓: Karena ini hari Senin, aku datang dari pagi buat ketemu kalian😘
+🍓: Semuanya, ayo mulai hari ini dengan penuh semangat!
+
+🩵: Aku benci banget hari Senin, Jiwoo gimana menurut kamu??
+🍓: Sebenarnya aku nggak terlalu peduli hari apa 🫪🫪
+🍓: Tapi karena Hachu nggak suka, aku juga jadi nggak suka
+🍓: Jadi aku datang~~
+
+🩵: Siapa yang ambil fotonya?
+🍓: Reumen 🌴🤍
+🍓: Keren kan?!
+🌴: 😎😎😎
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23415
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23415_1779083900.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+Based on a market research report from Yuanta Securities released today (May 18, 2026), #HEARTS2HEARTS is scheduled to soon join and launch their service on the DearU Bubble platform in the second quarter (Q2) of this year!
+
+───────
+
+Berdasarkan laporan riset pasar dari Yuanta Securities yang dirilis hari ini (18 Mei 2026), #HEARTS2HEARTS dijadwalkan segera bergabung dan membuka layanan mereka di platform DearU Bubble pada kuartal kedua (Q2) tahun ini!
+
+https://m.newsprime.co.kr/section_view.html?no=733710
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 05:05
 ---
 
