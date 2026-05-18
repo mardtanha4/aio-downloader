@@ -7,6 +7,130 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:45
+---
+
+## Dirty_Kids — post 389703
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389703_1779135320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+املاکی لحظاتی پیش پست زیر رو در تروث سوشا منتشر کرد:
+
+
+«از طرف امیر قرمساق قطر، ولیعهد قرمدنگ عربستان سعودی و رئیس قرمپف امارات متحده عربی از من خواسته شده که حمله نظامی برنامه‌ریزی‌شده‌مون به رژیم هزارپدر روافض رو که قرار بود فردا انجام بشه، دست نگه داریم و انجام ندیم؛
+چون الان مذاکرات جدی داره انجام میشه و به نظر این قرمساق‌‌ها به عنوان رهبران جاکش و متحدان ما، توافقی با روافض داره شکل می‌گیره که هم برای ایالات متحده آمریکا و هم برای همه کشورهای خاورمیانه و فراتر از اون، کاملاً قابل‌قبول خواهد بود.
+
+این توافق و این نکته خیلی مهمیه، شامل هیچ سلاح هسته‌ای برای رژیم روافض نمیشه.
+
+منم به خاطر احترامی که برای رهبرانی که نام بردم قائلم، به وزیر جنگ پیت هگست، رئیس ستاد مشترک ارتش ژنرال دانیال کین و ارتش ایالات متحده دستور دادم که حمله برنامه‌ریزی‌شده فردا به رژیم روافض رو انجام ندن.
+
+اما در عین حال بهشون دستور دادم برای موقعی که یه توافق قابل‌قبول به دست نیومد، در اسرع وقت آماده باشن تا یک حمله تمام‌عیار و بزرگ رو علیه رژیم شیعه‌سانان رافضی شروع کنن.
+
+ممنون از توجهتون به این موضوع!
+رئیس‌جمهور دونالد جی. ترامپ»
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389702
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389702_1779135320.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان نخ داد که میخوان مذاکره بکنن:
+
+گفتگو به معنای تسلیم نیست؛
+جمهوری‌اسلامی ایران با عزت و اقتدار وارد گفتگو میشه و از حقوق خودش عقب‌نشینی نمیکنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389701
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389701_1779135321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحنه‌ای از چاه فاضلاب:
+ترویج کودک همسری در صدا و سیما
+
++ مجری بیشعور تبعیض جنسیتی میکنه
+برای پسر ولیمه باید داد
+دخترو اینا آخه زنده به گور میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389700
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389700_1779135322.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما یه تازه عروس و داماد رو آورده تو برنامه تلویزیون؛
+
+بی‌بی میزنه کتلت بعد میگن تقصیر مردم بود
+
+
+داماد : مهریه خانمم یه پهپاد شاهده که ایشالا بخوره تو قلب تل‌آویو
+
+مجری: حالا اگه عروس خانم مهریه‌شو بخواد میخوای چیکار کنی؟ میدونی قیمتش چقدره؟
+
+داماد : خخخخخ
+
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389699
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389699_1779135323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثبت‌نام جان‌فدا برای جنگ بود یا واسه عروسی؟
+زوج جان‌فدا چیه دیگه پدرسگا؟
+
+معلوم نیست رهبر بوده یا سبزه ۱۳بدر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389698
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389698_1779135323.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حال و هوای اینترنت طبقاتی
+هرچی طبقاتی‌تر عرزشی لختر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389697
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389697_1779135324.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی 😂😂😂😂😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 21:59
 ---
 
