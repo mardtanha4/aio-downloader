@@ -7,6 +7,225 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 13:37
+---
+
+## Dirty_Kids — post 389666
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389666_1779098855.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Coming soon… 🐺⚽️
+
+موزیک‌ویدئو شکیرا که با پله و مارادونا شروع می‌شه و قراره برای افتتاحیه‌ی جام جهانی اجراش کنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389665
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389665_1779098857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قاضی‌زاده‌هم گرفت رو بهزاد سگ‌سیبیل
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389664
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389664_1779098859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+R28
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389663
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389663_1779098860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رقابت شدیدی هست بین ورزش کردن با کافه رفتن تو عادیسازی..
+
+خب اصن گیریم دو ساعت ورزش کردیم بعدش، گوشت مرغ‌تخم‌مرغ ارزون میشه؟
+
++ اینارو من نمیشناسم کلی مشاهداتمو میگم..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389662
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389662_1779098863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی من دوست دارم فردای آزادی خودم رو به صورت فیزیکی به عمو مراد ویسی برسونم و ازش خواهش کنم تو یه برنامه بگه:
+فرزند ایران و جان فدای میهن فریدون فرخزاد ۵۳ ساله از تهران عزیز
+«یادمون باشه ما ها همه‌مون کم و زیاد به نوعی به فریدون فرخزاد بدهکاریم»
+#پاينده_ایران_جاویدشاه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389661
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389661_1779098863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌‌‏این بچه خایه داره اندازه کل هیکل بابات
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389660
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389660_1779098864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پناه بر خدا این گربه جدی جدی ریش و سبیل داره.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏۵۷ انقلاب کردن تخم نمیخواست چون اونجا سپاه محمدرسول الله و قرارگاه خاتم و سپاه امام حسن و سپاه موتوری امام علی مسلح مردم رو به رگبار نمیبستن
+
+۵۷ شورش کردن درجه ی بالایی از تخمی بودن لازم داشت که شماها داشتین
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389658
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389658_1779098864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ویدیو وایرال شده از روزهای اول جنگ تو تهران؛
+
+
+خونه‌ی طرف بخاطر موج انفجار آسیب دیده و پلیس‌ 10 دقیقه وقت داده که اگه چیز مهمی مثل طلا، سند و... دارید، بردارید و فوری ساختمون رو ترک کنید که احتمال حمله مجدد هست..
+
+بعد خانومی از لا به لای اون همه شیشه خرده و آوار داره رد میشه که بره چیش رو پیدا کنه؟ موچین...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #CARMEN WEVERSE UPDATE
+
+I want to eat fruit salad~ ^_^
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23428
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23428_1779098867.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] @kpop_sbs TWITTER UPDATE
+
+🚨 [Hearts2Hearts’ SPECIAL MESSAGE] 🚨
+
+Monster rookies right out of the gate! 🌟
+
+Bold, bubbly, and shining in every color, the instant global sensation Hearts2Hearts 🍓🌴🎀🧁👾🌻🫛😊 are ready to steal your heart at Paris! 🎉
+They just dropped a super cute video message for you!
+💝 Tap play to watch it now! ▶️
+
+🎁 Another special treat: Before they light up the stage, come experience the shining culture of their home country at our K-Culture Exhibition (June 16-18)! 🎇
+
+🎀 CONCERT: June 17, 2026 (Wed)
+🎀 VENUE: Palais des Congrès de Paris
+
+Hosted and Organized by: MCST, KOCCA,
+In Partnership with : MAFRA, MOF, MOHW, KOCCA, KTO, KPIPA, aT, and KCII.
+
+#2026k_expofrance #KPopConcert #K_EXPOINKIGAYOinParis
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23427
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23427_1779098870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #HEARTS2HEARTS SNS UPDATE
+
+✌️ right!!
+
+#Hearts2Hearts #하츠투하츠 #H2H #JIWOO #지우
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23426
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[VIDEO]
+
+#HEARTS2HEARTS arrived back in Korea at GMP Airport
+
+Cr. JJIIXX_0n1
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 09:28
 ---
 
