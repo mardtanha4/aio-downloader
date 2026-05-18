@@ -7,6 +7,263 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 17:30
+---
+
+## exoupdate_news — post 60563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] EXO WEVERSE UPDATE 🔒
+
+" #2026.05.16-17 #SUHO #CHANYEOL #D.O. #KAI #SEHUN #EXO PLANET #6 - EXhOrizon in BANGKOK "
+
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60562
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60562_1779112859.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] EXO OFFICIAL SNS UPDATE
+
+EXO 엑소 'Crazy' Stage Video @ EXO PLANET #6 - EXhOrizon in SEOUL
+
+youtu.be/SIAzBwljv6g
+
+https://x.com/i/status/2056299242738913340
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389677
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389677_1779112860.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خبرو این وسط خوندم خیلی خندیدم گفتم شماهم ببینید روحیه‌تون عوض شه:
+تو ترکیه یه دستگاه گذاشتن به گربه ها غذا میده اتوماتیک با صدای میو کردن گربه؛ بعد این مرغ دریاییای پدرسوخته یادگرفتن میرن جلوش میو میو میکنن غذا بگیرن :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جورجینا (زن رونالدو) بلوند کرده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389674
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389674_1779112862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه داداش ببین...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389673
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389673_1779112862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از راست به چپ به ترتیب:
+گلشیفته، نرگس محمدی، مصی علینژاد و لیلی بازرگان اگه رضاشاهِ اول نبود.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389672
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389672_1779112862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشریه چپولیستی گاردین رسما اعلام کرده:
+"اگه از بوی شاش و عرق حال‌تون به هم می‌خوره، شما راست افراطیِ ترامپ‌یستید" 😭😂
+یعنی اینا برای حموم نرفتن و بوی تعفن هم دارن مشروعیت سیاسی صادر می‌کنن!!!!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389670
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389670_1779112863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا نه تنها باخت ندارن 😂
+حتی یه مورد مساوی هم ندارن
+فقط بردددد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389669
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389669" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389668
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389668_1779112863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نگاهی عمیق‌تر به بیضه‌های بهزاد فراهانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23437
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23437_1779112864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #JUUN WEVERSE UPDATE
+
+I finally made the setlog
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#CARMEN Changed Weverse Profile
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] WEVERSE REPLY
+
+🩵: Dahyun, recommend me a dinner menu
+🧁: I had steak for dinner todayyy
+🧁: Hachu should eat steak too
+
+🩵: A pose for eating steak..? lol
+🧁: good idea
+
+🩵: I want to listen to a song picked by Dahyun🎧😚
+🧁: west side - Ariana Grande
+
+🩵: Dahyun, I'm buying Joyday ice cream now.
+🧁: good job 🩷🩷🩷
+
+🩵: Why did you change your nickname and delete your profile picture? Is it a spoiler?
+🧁: steak
+
+🧁: Hachu, make sure to eat steak at least once this week too
+I’m going nowww
+Byeee!!🩷
+
+〰️〰️〰️〰️〰️
+
+🩵: Dahyun, rekomendasiin menu makan malam dong
+🧁: Aku tadi makan steak buat makan malamnyaaa
+🧁: Hachu juga makan steak ya
+
+🩵: Pose makan steak..? wkwk
+🧁: ide bagus
+
+🩵: Aku pengen denger lagu pilihan Dahyun🎧😚
+🧁: west side - Ariana Grande
+
+🩵: Dahyun, aku lagi beli es krim Joyday sekarang.
+🧁: good job 🩷🩷🩷
+
+🩵: Kenapa kamu ganti nickname dan hapus foto profil? Apa itu spoiler?
+🧁: steak
+
+🧁: Hachu juga minggu ini harus makan steak setidaknya sekali ya. Aku pergi duluuu
+Babaiii!!🩷
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#STELLA Changed Weverse Profile and Nickname to Steak🩷
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 13:37
 ---
 
