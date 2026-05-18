@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 02:09
+---
+
+## Dirty_Kids — post 389720
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389720_1779143951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389719
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389719_1779143952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A28
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389718
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389718_1779143953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389717
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389717_1779143953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماشین عروس مسلح به مسلسل سنگین در شوی حکومتی موسوم به «جشن زوج‌های جانفدا» در میدان «امام حسین» تهران به نمایش درآمد.
+
+سپاه محمد رسول‌الله تهران بزرگ ٢٨ اردیبهشت این مراسم را برگزار کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389716
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389716_1779143955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نبینم این آنلاین شاپارو اذیت کنیدا 😒
+بزارید پول دربیارن تو وضعیت اقتصادی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389715
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389715_1779143957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب ما که همین میگیم
+بخاطر پول و غذا مفتی هرشب ول میچرخید تو خیابون، گشنه‌های شیعه‌سان
+
+پیشرفت کردن از ساندیس رسیدن به انرزی‌زا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنیا چجوری به مدرسه نرفتن دخترای افغان واکنش نشون داد؟! همونجوری به نبود اینترنت آزاد تو ایران واکنش نشون میده...!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاری که ترامپ داره با این جماعت کسمغز رافضی می‌کنه چیزی نیست جز تو هول و ولا نگه‌داشتن‌شون که بر پایه‌ی استراتژی «رافضی رو چه بزنی چه بترسونی» استواره،
+
+شما به اولدورم بولدورم شیعه‌سانان رافضی نگاه نکنید، به گردن کج ممدباقر در مقابل وزیر کشور قرمساق پاکستانی و توئیت‌های تحلیلگران کسمغزشون نگاه کنید که خوب می‌دونن انتهای این جاده چه گایشی در انتظار زنده و مرده‌شونه.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 01:10
 ---
 
