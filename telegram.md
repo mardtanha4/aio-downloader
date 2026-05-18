@@ -7,6 +7,147 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 21:59
+---
+
+## Dirty_Kids — post 389696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رادان گفته: از وقتی جنگ شروع شده 6500نفرو دستگیر کردیم، بازم میکنیم..
+
+شش هزار و پانصد بار کُص ننت🖕
+
+‌
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389695
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389695_1779128978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی تاثیرگذار بود
+آخرش قشنگ تموم شد
+
++ خیلی منطقی عربستان و پاکستان با خودشون جمع میبندن:)))) امروز پاکستان نیرو فرستاده عربستان واسه مقابله احتمالی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389694
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389694_1779128980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به بابات بگو هرکی صحبت از خایه کرد اشکال نداره ولی تو یکی گوه نخور…
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389693
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389693_1779128980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چجوری تو هوای روشن پیتزا میخورین؟!
+بابا یه سری غذاها مال روشناییه یه سریاش مال تاریکی.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389692
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389692_1779128981.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقاد تند همشهری به سریال «تهران کنارت»
+
+بچه جون بزرگترات مجوز دادن چون اوضاع‌ خیته، اسکل تو خیابون مجوز عرقخوری هم دادن به پرستوهاتون:))))
+
+به خودتم مجوز دادن که بیای انتقاد کنی که مثلا قشر خرمذهبی رو راضی کنی و همچنین این فیلم‌رو وایرال کنی ذهن‌هارو منحرف کنی از فلاکت مملکت
+
+ولی این وسط توئیت سوگند عالی بود، ندیده بودم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389691
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️  
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍       
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر 
+💳تسویه حساب دلاری سریع 💊بیمه شرط میکس 
+⚠️فروش شرط 
+🔔ویرایش شرط                    
+3️⃣
+2️⃣ 
+🎁20%هدیه واریز از طریق ارز و ووچر ┅━━━━━━━━━━━…
+</div>
+
+## Dirty_Kids — post 389690
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389690_1779128983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇
+
+✈️https://t.me/+1Wv5nGY_a54xNzlk
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 20:21
 ---
 
