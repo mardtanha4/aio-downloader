@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 05:05
+---
+
+## Hearts2HeartsUpdateSM — post 23414
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23414_1779068147.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #YE_ON WEVERSE UPDATE
+
+🤍ASEA🤍
+
+We couldn’t take a group photo together, so it’s a bit disappointing, but this is a record from yesterday 🫶
+Next time, we’ll come back with an even more crowded and lively one!
+
+🤍ASEA🤍
+
+Kami tidak bisa mengambil foto bersama semua orang, jadi sedikit disayangkan, tapi ini adalah kenangan dari kemarin 🫶
+Nanti kami akan kembali dengan suasana yang lebih ramai lagi!
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260518] #JIWOO WEVERSE UPDATE
+
+Monday fighting 🫪🫐
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 03:11
 ---
 
