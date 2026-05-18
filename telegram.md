@@ -7,6 +7,246 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 20:21
+---
+
+## exoupdate_news — post 60569
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60569_1779123067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] lay_studio SNS UPDATE
+
+"Dengan ketulusan yang secerah cahaya, hati yang murni sebagai intinya, setiap momen terasa tenang namun mempesona. @.layzhang"
+#LAY #LayZhang
+
+🖇 https://www.instagram.com/reel/DYeMajTASTX/?igsh=MWNjcGV4Ymxuc2E2Mw==
+
+https://x.com/i/status/2056276920527208573
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] EXO OFFICIAL SNS UPDATE #KAI
+
+📺 SBS <No, But Really!>
+⏰ Sebentar lagi pukul 22:10
+
+🖇 https://youtu.be/XYh-dE4nUvE?si=ns6CA-LPC9_bEZZ0
+
+https://x.com/i/status/2056351599010684986
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60567
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60567_1779123070.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] SEHUN BUBBLE UPDATE 🐥🫧
+*latepost
+
+21:09KST
+"📸"
+“Memainkan game klasik untuk pertama kalinya setelah sekian lama”
+
+engtrans: xunhuas
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60565
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60565_1779123072.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] BAEKHYUN BUBBLE UPDATE 🐶🫧 
+
+*latepost
+"📸"
+"(Mengirim Video)"
+"Semoga harimu juga menyenangkan!!!"
+
+engtrans : fourbaekpearl
+*exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389689
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389689_1779123074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکومتی‌ها پرچم مبارزه با امریکا رو بلند میکنن ولی تا خشتک امریکایی هستن و کمک به اقتصاد امریکا میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389688
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389688_1779123076.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورتش کو :))))))
+#تراپی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389687
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389687_1779123076.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G28
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 باراک راوید خبرنگار ارشد آکسیوس | axios:
+
+یه مقام ارشد آمریکایی به من گفته که پیشنهاد جدید ایران به آمریکا کافی نیست و خطر شروع دوباره‌ی جنگ رو به همراه داره.
+
+اگر جمهوری اسلامی موضع خودشو تغییر نده، آمریکا مجبوره مذاکرات رو از طریق بمب ادامه بده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389685
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389685_1779123077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست جدید شیر کارد به استخوان رسیده‌ی خدا در تروث‌سوشال در خصوص فیک‌نیوزهایی که کله‌ی شیر خدا رو کیری می‌کنن:
+
+
+«حتی اگه رژیم شیعه‌سانان پدرخراب رافضی تسلیم شن و اعتراف کنن که نیروی دریایی‌‌شون [یا خدا شروع کرد خاطره گفتن] نابود شده و کف دریا جا خوش کرده، و بگه که نیروی هوایی‌‌شون دیگه وجود خارجی نداره و اگه تمام ارتش‌شون سلاح‌ها رو زمین بذارن و دست‌ها رو بالا ببرند، در حالی که پرچم سفید تسلیم رو به شدت تکون می‌دن و همگی ضجه‌بزنن «ما پدرخرابا تسلیمم، ما پدرقحبه‌ها تسلیمم» و از تهران بیرون برن؛
+
+و اگه تمام رهبران مادرخراب باقی‌مانده‌شون پای تمام اسناد تسلیم رو امضا کنند و شکست‌شون رو در برابر قدرت عظیم و ارتش باشکوه ایالات متحده آمریکا بپذیرند،
+
+باز هم روزنامه‌ی ورشکسته نیویورک تایمز و چاینا استریت ژورنال[ وال استریت ژورنال] و شبکه‌ی فاسد و الان دیگه مسشر سی‌ان‌ان و بقیه‌ی اعضای رسانه‌های دروغ‌پرداز، تیتر خواهند زد: رژیم قحبه‌ی روافض به یک پیروزی مقتدرانه و درخشان در برابر ایالات متحده آمریکا دست پیدا کرد و آمریکا حتی به گرد پاشونم هم نرسید».
+
+دموکرات‌های قرمساق احمق و رسانه‌های قرمدنگ‌شون کاملاً مسیرشون رو گم کردن.
+
+این پدرقحبه‌ها رسماً کسخل و دیوونه شدن.
+
+رئيس‌جمهور دی‌جی‌تی، یل کارد به استخوان رسیده‌ی خاک‌سفید»
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389684
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389684_1779123077.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد ایران‌دوست، بازیگر:
+«مشروب می‌خورم، کلاب می‌رم، اون‌ور که هستم با شهناز تهرانی می‌رقصم، این‌ور که میام دست‌بوس حاج قاسم‌ام، نمی‌خوره بهم؟»
+
++ با همین فرمون جلو برن تو صداسیما خودشون شعار میدن #جاویدشاه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389683
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389683_1779123078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری‌اسهالی مثل سگ از حمله زمینی ارتش آمریکا ترسیده و داره تو مساجد به حکومتی‌ها آموزش کار با اسلحه رو آموزش میده!
+
++ اینا اولین سرباز آمریکایی رو ببینن میرینن به خودشون و فرار میکنن😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389680
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389680_1779123080.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک ن‍ــــــــه بزرگ به کیف.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389679
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389679_1779123080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توقعی که از ایرانیای امریکا دارم
+
+این تیم بی‌غیرتان سپاه رو اینجوری ادب نکنید و براشون جهنم نسازید، خیلی ازتون ناامید میشم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389678
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389678_1779123082.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه فمبویِ مشهدی رفته حرم؛
+
+اونجا هرکی از راه می‌رسه میگه شما چرا چادر نداری؟ اینم میگه بابا بخدا من پسرم...
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 17:30
 ---
 
