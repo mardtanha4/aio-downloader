@@ -7,6 +7,384 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 20:11
+---
+
+## exoupdate_news — post 60581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260519] CHANYEOL BUBBLE UPDATE 🍒🫧
+
+"📸"
+"Aku tak bisa menolak ceri~~"
+"📸" (Foto Selfie)
+"Aku juga tak bisa menahan diri untuk berolahraga~~"
+"Sebagai informasi, aku membelinya [tempat lilin ceri] padahal aku tidak punya lilin~~"
+"📸"
+"😝"
+
+engtrans : 1127message
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260519] CHANYEOL BUBBLE UPDATE 🍒🫧
+
+"📸"
+"Cherry cherry~ cherry cherry~"
+"📸" (Foto Zzar)
+"Jelly edisi terbatas musim panas"
+
+*merujuk pada lidah Zzar
+"📸" (Foto Selfie)
+"Ini aku"
+
+engtrans : 1127message
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389763
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389763_1779208869.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادامه آموزش کار با اسلحه در صداوسیما:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389762
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389762_1779208870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی واحدی هم یه حالی به بهزاد بی بیضه داد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389761
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389761_1779208873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو لیترالی سواد خوندن آنچنانی نداشت، تصمیم گرفت فال بگیره، و همونجا بدون کوچیک‌ترین تپقی فالش رو خوند.
+«خوش باش که ظالم نبرد راه به منزل»
+
+بعد اون فال اول خودشو بگا داد؛ بعدشم محور مقاوت یک روز خوش ندید که ندید.
+
+پ‌ن: عکس بالگردیه که باهاش سقوط کرد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389760
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389760" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389759
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389759_1779208874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آدم یه قهوه می‌خواد بخوره باید حساب کنه ببینه این لذت لحظه‌ای میارزه آخر ماه کون بده یا نه!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389757
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389757_1779208874.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بسیجی‌ها زیادی از به درک واصل شدن خامنه‌ای خوشحالند، نه؟
+
+میگم اون لاشه رو اول چال کنید، بعد تو خیابونا قر بدید!🤮البته تجهیزات جنگیتون بیشتر از عروسی هم بدرد نمیخوره 😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389756
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389756_1779208877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این چیزایی که من دارم تو این ویدیو میبینم اگه تو ایران باشگاه‌ها مختلط شه بیش از 60 درصد از جوونای مملکتمون به‌جای کشیدن مواد و سیگار و جق، وقتشونو با باشگاه میگذرونن :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389755
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389755_1779208879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G29
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389754
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389754_1779208880.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر:
+ایران چند روز فرصت داره تا بیاد پای میز مذاکره؟
+
+ترامپ:
+2 یا 3 روز؛ شاید جمعه، شنبه، یکشنبه. شاید اوایل هفته آینده. نمی‌دونم احتمالا یه بازه زمانی محدود...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389753
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389753_1779208881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ :
+ایرانی‌ها دارن التماس می‌کنن که توافق انجام بشه؛
+ممکنه مجبور بشیم یه ضربه سنگین دیگه هم بهشون بزنیم، هنوز مطمئن نیستم، ولی خیلی زود متوجه می‌شید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین عرزشیا که بخاطر یک شب چهارشنبه سوری ، از آلودگی صوتی ناراحتن،
+۸۰روزه کنار خیابون عرعر میکنن🫏🫏
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389751
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389751_1779208883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید مادرت، یه جنده معمولیه ،که الان شده چنده پرو 🙄
+‌‎
+در مورد سیمکارت سفید و دارندگان مادرقحبه‌ش هم کمی توضیح بدهید لطفا.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حتی یک نفرتون شکل آدم نیست؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389748
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389748_1779208883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+((((((:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389747
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389747_1779208883.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری، تلگرام به خطر افتاد!
+
+بابک زنجانی دزد رسما فعالیت شبکه اجتماعی خودش به اسم «مای دات» رو استارت زد تا این سوپر اپلیکیشن با تلگرام رقابت کنه.
+
+ما رقابتی نداریم همینجارو دوست داریم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایرنا گزارشی به نام «مهر مادری به عمر چهل روز» منتشر کرده، درباره زنی که کودکی رها شده در دوران جنگ را به فرزندی پذیرفته. گزارش شامل مجموعه‌ عکسی از سارا کنعانی و فرزندش است و عکس‌هایی در خانه به تصویر کشیده شده، برخلاف فضاهای عمومی، سارا حجاب ندارد.…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23548
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23548_1779208885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#CARMEN Changed Weverse Nickname to S2U~ 520💖
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#IAN & #A_NA at Konkuk University Festival!
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23528
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23528_1779208886.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#STELLA & #YE_ON at Konkuk University Festival!
+
+Cr. onpict & on video
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#YUHA & #JUUN at Konkuk University Festival!
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#JIWOO & #CARMEN at Konkuk University Festival!
+
+Cr. onpict
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 17:01
 ---
 
