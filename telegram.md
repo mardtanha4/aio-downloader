@@ -7,6 +7,72 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 01:17
+---
+
+## Dirty_Kids — post 389777
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389777_1779227223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از پارتیم شانس نیاوردیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389776
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389776_1779227223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تیر برق رندومی تو خیابونهای لندن
+
+مجتبی جهانی شده…
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389775
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389775_1779227223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیفا ورود پرچم شیرو خورشید به داخل ورزشگاه هارو ممنوع کرده ولی نمیدونه گل های تو غربت جام جهانی رو برای مزدوران جمهوری اسلامی تبدیل به جام جهنمی میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389774
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389774_1779227225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گفته‌ی خواهر الهه حسین‌نژاد؛
+بهمن فرزانه (قاتل) امشب اعدام میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏صدا و سیما میخواد امشب طرز کار کردن با بمب اتم را آموزش بده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 23:43
 ---
 
