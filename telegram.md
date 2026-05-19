@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 21:57
+---
+
+## Dirty_Kids — post 389769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا ما اعصابمون کیریه از دست ترامپ و فحش میدیم شما عرزشیای پشگل مغز چرا ذوق می‌کنین؟ حواستون هست که همه این دعوا سر کون شماست یا نه؟؟ :)))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389768
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389768_1779215220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیر چه کصخلایی افتادیم
+نصف طرفداراشون افغانیا هستن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389767
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389767_1779215222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی که تو اینستاگرام بیش از چندمیلیارد بازدید خورده :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیفا قصد دارد ورود پرچم شیر و خورشید به استادیوم‌های جام‌جهانی را ممنوع کند.
+
+ج.ا. جام جهانی را به میدان جنگ حکومت و مردم بدل کرده است.
+
+
+پ‌ن: اولا گوه خورده باید از امروز دهن اینفانتینو رو سرویس میکنیم که جرات نکنه
+با امضا و تجمع جلو فیفا
+
+بر فرض هم اگه شد، همه تو خونه‌هاشون پرچم دور خودشون ببندن، لباس بپوشن بیارن تو استادیوم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+_چه میوه‌ای رو هرروز استفاده می‌کنی؟
++اضطرابری.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389764
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389764_1779215224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس صدا و سیما: هرکسی جنگ نمیخواد؛ جمع کنه از ایران بره. ما تسلیم‌نمیشیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 20:11
 ---
 
