@@ -7,6 +7,354 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 17:01
+---
+
+## exoupdate_news — post 60575
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60575_1779197503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260519] CHEN BUBBLE UPDATE 🦖🫧
+
+"📸"
+"Selamat menikmati sore yang santai!
+Mari kita jalani hari yang sehat, baik fisik maupun mental✌️
+🔜"
+
+engtrans: daebubble
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایرنا گزارشی به نام «مهر مادری به عمر چهل روز» منتشر کرده، درباره زنی که کودکی رها شده در دوران جنگ را به فرزندی پذیرفته.
+
+گزارش شامل مجموعه‌ عکسی از سارا کنعانی و فرزندش است و عکس‌هایی در خانه به تصویر کشیده شده، برخلاف فضاهای عمومی، سارا حجاب ندارد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴‌حالتون از این همه تناقض و دورویی بهم نمی‌خوره؟
+
+دیروز هتل تاریخی عامری‌ها کاشان را به‌خاطر «حجاب» پلمب کردند؛ مسافران سرگردان شدند و ۹۰ نفر از پرسنل بیکار!
+
+‏اما همزمان، شب‌ها در میدان‌ها و مراسم‌هایی مثل #جان_فدا⁩، شعار «بی‌حجاب هم خواهر ماست» تکرار می‌شود و همان زنان با آزادترین پوشش در قاب رسمی دیده می‌شوند.
+
+‏اگر حجاب قانون است، چرا اجرای آن این‌قدر مقطعی و گزینشی است؟ #یاشارسلطانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یه نفر دیگه از نیرو های سپاه پاسداران در عملیات خنثی‌سازی بمب های عمل نکرده امریکا و اسرائیل دیروز منفجر شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389736
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389736_1779197504.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قال موش‌علی: دفن نخواهم شد و تشییع جنازه نخواهیم گرفت :)))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389735
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389735_1779197505.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعید نیست ترامپ چند روز دیگه‌ همچین توییتی بزنه: 😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389734
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389734_1779197505.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از کیرشناسی تا شاعری 🔞 تا آخر ببینید
+
+بعد همین جنده‌ها با این ادبیات میان میگن شما بی‌ادبید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389733
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389733_1779197506.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چند روز پیش دريک | Drake رپرِ معروف کانادایی یهو سه تا آلبوم داد بیرون که حسابی ترکوند؛
+
+نکته جالبش اینجا بود که تو ترک Don't worry از آلبوم Iceman، به یه دختر ایرانی اشاره کرده!
+
+دختر، تو خوب میدونی بین ما چه خبره، من با یه چشم به هم زدن میام پیشت
+
+میخواد بره اونور میخواد پارتی رو ببینه
+
+گفت ایرانیه و شروع کرد فارسی حرف زدن
+
+نمیدونم این روزا چمه واقعاً چمه
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389732
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389732_1779197507.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخی دلم خنک شد
+تا آخر ببینید ؛))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389731
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389731_1779197509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر کار دولت رئیسی: ایران هیچوقت دچار ابَرتورم نمیشه، چون وقتی قیمتا از یه حدی بالاتر بره مردم دیگه نمیتونن خرید کنن، فروشنده‌هام دیگه نمیتونن گرون کنن و در نتیجه همه چی ارزون و درست میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389730
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389730_1779197509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سالاد وارد کانال ۲ میلیون تومن شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389729
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389729" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 اپلیکیشن اندروید بدون فیلتر ریتزوبت
+
+➖➖➖➖➖
+
+🔹 ثبت نام آسان 
+✅
+🔹 رابط کاربری بسیار راحت و سریع 
+✅
+🔹 درگاه پرداخت کارت به کارت 
+✅
+🔹 درگاه پرداخت دلاری سریع 
+✅
+🔹 بونوس ۱۰۰ درصدی اولین واریز 
+✅
+🔹 بونوس ۱۰۰ درصدی واریز یکشنبه ها 
+✅
+
+➖➖➖➖➖
+🌐 https://RitzoBet.com
+
+⚡️ @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 389728
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389728_1779197510.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ برای #شرطبندی های فوتبال از سایت معتبر و بین المللی استفاده کنید ✅
+
+
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 چلسی 
+🔢
+🔢 
+⚽️تاتنهام
+
+سایت #ریتزوبت ، چهار سال هستش داخل ایران فعالیت میکنه 
+✅
+
+لایسنس بین المللی داره ، روش های شارژ و برداشت متنوع داره و بونوس 100% ورزشی و کش بک های جذاب
+💎
+
+
+⏪ اپلیکیشن بدون فیلتر ریتزوبت 
+📱
+⏩
+R29
+
+✅ لینک بدون‌ فیلتر ریتزوبت
+🤣
+
+🆔 @RitzoBet_ir 
+🇮🇷
+</div>
+
+## Dirty_Kids — post 389727
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389727_1779197510.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی کرج یه عروسی به طرز عجیبی بهم خورد! حالا داستان چی بوده؟
+
+یه پسر شب عروسیش می بینه ۱۱ تا پسر جوون اومدن مراسمش و هیچکدوم رو نمی‌شناسه، هی از این و اون سوال می‌کنه می بینه کسی نمیشناستشون.
+خلاصه میره به دختره میگه تو اینارو می‌شناسی؟ میگه آره دوستای معمولی و مثل داداشمن، تازه یه چند تای دیگم هستن که نیومدن.
+داماد بدبختم پشماش می‌ریزه و همونجا با یه خداحافظی دختر رو ترک می‌کنه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389725
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389725_1779197510.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه مسافر که شباهت زیادی به مایکل جکسون داشته، تو یه اتوبوس توی مکزیک دیده شد.
+یعنی ممکنه زنده باشه؟😐
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389724
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389724_1779197511.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اظهار نظر محمدحسین عظیمی (دبیر کل جبهه انقلاب اسلامی) در مورد مسیح علی‌نژاد و گلشیفته فراهانی: عامل دستگاه امنیتی در ایران بودند!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23496
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23496_1779197512.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] #JUUN WEVERSE UPDATE
+
+Hachuu, I have a dilemma 🥺
+I took a lot of selfies today, but if I upload all of them, there are too many...
+So I want to upload the selfies that Hachuu wants to see, so choose one for me~
+
+By the way, the photos I can’t upload today, I’ll post laterrr
+
+1. A blurry selfie with a bright vibe
+2. A blurry selfie with a slightly dark vibe
+3. The classic selfie style.
+4. Horizontal selfies only!
+〰️〰️〰️〰️〰️
+Hachuu, aku lagi galau 🥺
+Hari ini aku ambil banyak selfie, tapi kalau di-upload semuanya bakal terlalu banyak...
+Jadi aku mau upload selfie yang paling pengen dilihat Hachuu, coba pilih satu yaa~
+
+Oh iya, foto yang belum bisa aku upload hari ini bakal aku upload nantiii
+
+1. Selfie blur dengan nuansa terang
+2. Selfie blur dengan nuansa agak gelap
+3. Selfie yang klasik banget.
+4. Selfie horizontal aja!
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] #HEARTS2HEARTS TWITTER UPDATE
+
+Hearts2Hearts at 건국대💚
+
+#Hearts2Hearts #하츠투하츠 #H2H
+#건국대
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23489
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23489_1779197513.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] #HEARTS2HEARTS INSTAGRAM UPDATE
+
+layer by layer🌿
+
+#Hearts2Hearts #하츠투하츠 #H2H #건국대
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23479
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23479_1779197516.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] #HEARTS2HEARTS INSTAGRAM UPDATE
+
+layer by layer🌿
+
+#Hearts2Hearts #하츠투하츠 #H2H #건국대
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] #YE_ON WEVERSE UPDATE
+
+Konkuk University was so much fun!!
+Thank you for welcoming me with good energy! 🤍
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 13:37
 ---
 
