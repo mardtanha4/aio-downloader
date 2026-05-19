@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 23:43
+---
+
+## Dirty_Kids — post 389772
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389772_1779221595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز سالگرد سقوط بالگرد آنگوزمان و درازعلی هست گویا. روز خرس مبارک. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389771
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389771_1779221596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز سالگرد سقوط بالگرد آنگوزمان و درازعلی هست گویا. روز خرس مبارک. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389770
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389770_1779221597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز سالگرد سقوط بالگرد آنگوزمان و درازعلی هست گویا.
+روز خرس مبارک.
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 21:57
 ---
 
