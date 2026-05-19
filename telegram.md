@@ -7,6 +7,140 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 02:29
+---
+
+## Dirty_Kids — post 389786
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389786_1779231596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389785
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389785_1779231596.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A29
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389784
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389784_1779231597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389783
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389783_1779231597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به فیفا بگید ایران فقط و فقط یه پرچم داره.
+اونم پرچم شیروخورشید هست...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پژمان جمشیدی به «اتهام تجاوز» به ۹۹ ضربه شلاق تعزیری محکوم شد!
+
+سؤال ساده: اگر بی‌گناه است، شلاق چه معنایی دارد؟ و اگر واقعاً تجاوز کرده، ۹۹ ضربه شلاق( آن هم تعزیری) تمام مجازات اوست؟!
+
+این تناقض عجیب «عدالت» ما را به خوبی نشان می‌دهد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389781
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389781_1779231597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزرگوار رو مجله پلی بوی سجده میکرده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389780
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389780_1779231597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اهدای عضو اهدای زندگی
+
+این جوان ال‌جی‌بی‌تی عضوش را به مجتبی خامنه‌ای اهدا کرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389779
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389779_1779231599.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم شعار سیاسی میدیم
+هم فحشتون میدیم
+هم پرچم شیر و خورشید میاریم تو ورزشگاه
+هم کون‌تون میزاریم
+هم پرچم خرچنگ نشان نظام آفتابه‌ایی جرررر میدیم
+تخم حروم فکر کردی آمریکا و کانادا طویله اعراب که زد بند کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389778
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389778_1779231600.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجا نه کربلاست، نه بغداد، نه لندن
+متاسفانه مشهده و شاهد جولان عراقیا و نیروهای حشدالشعبی در سطح شهر هستیم
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 01:17
 ---
 
