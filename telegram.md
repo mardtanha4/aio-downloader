@@ -7,6 +7,46 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 09:33
+---
+
+## Hearts2HeartsUpdateSM — post 23447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#HEARTS2HEARTS has been confirmed to appear at NOL FESTIVAL!!
+
+🗓️ October 17-18, 2026
+📍 KINTEX Exhibition Center 2
+
+Cr. H2H_INA
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] @asea_official TWITTER UPDATE
+
+ASEA 2026 | 📸 BEHIND
+Hearts2Hearts
+
+🏆𝐀𝐒𝐄𝐀 𝟐𝟎𝟐𝟔🏆
+📅 2026.05.16(토) - 17(일)
+📍 BELLUNA DOME
+
+#ASEA #ASEA2026
+#AsiaStarEntertainerAwards
+#하츠투하츠 #Hearts2Hearts @Hearts2Hearts
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 05:20
 ---
 
