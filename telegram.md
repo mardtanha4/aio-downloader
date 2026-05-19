@@ -7,6 +7,31 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 05:20
+---
+
+## exoupdate_news — post 60570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260518] XIUMIN BUBBLE UPDATE ❄️🫧
+*latepost
+
+13:24 KST
+"Apakah kalian semua menikmati makan siangnya?!"
+"Aku baru saja selesai lari dan datang untuk makan!"
+"📸" (foto makanan)
+"Ta-da~~~ Pasta, Americano, Jus Kiwi"
+"Kupikir aku akan mati karena panas dan sesak napas saat berlariㅋㅋ"
+"📸" (foto selfie)
+"Apakah ini sebabnya aku merasa sesak napas?"
+"Aku senang lututku sudah terasa lebih baik sekarang ㅋㅋ"
+
+engtrans: BaseMinseok
+*@exoljjang_ina*
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 03:15
 ---
 
