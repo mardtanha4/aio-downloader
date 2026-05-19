@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 13:37
+---
+
+## exoupdate_news — post 60572
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260519] SEHUN Weibo UPDATE 2P
+
+
+🖇 https://m.weibo.cn/detail/5300293619158731
+
+@.milkteus
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389722
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389722_1779185237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه صرف نداره یدونه یدونه این حشریارو عقد کنن، بصورت گوسفندی گله‌وار عقدشون میکنن برن جهاد نکاح
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389721
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389721_1779185239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت اَدای ترامپو دراورد 😂😂
+
+مرتیکه ی جذاب 😂🤦🏻‍♀️
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23449
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23449_1779185240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260519] @kpop_sbs TWITTER UPDATE
+
+🚨 THE FULL LINEUP IS HERE & TICKETS ARE LIVE! 🚨
+
+The ultimate roster for K-EXPO INKIGAYO is finally complete! 🎉
+
+Get ready for exclusive, never-before-seen stages from your favorite global K-Pop artists—crafted only for this historic night! You won't see these performances anywhere else.
+
+Tickets are officially OPEN today!
+
+🎁 Grab yours before they're gone! 🏃‍♀️💨
+
+🎀 TICKETS AVAILABLE AT: PALAISDESCONGRESDEPARIS.COM
+
+🎀 CONCERT DATE: June 17, 2026 (Wed)
+
+🎀 VENUE: Palais des Congrès de Paris
+
+✨ Plus, don't miss our massive K-Culture Exhibition (June 16-18) to dive deep into everything Korea! ♥
+Hosted and Organized by: MCST, MAFRA, MOF, MOHW, KOCCA, KTO, KPIPA, aT, and KCII.
+
+#2026k_expofrance #KPopConcert #K_EXPOINKIGAYOinParis
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 09:33
 ---
 
