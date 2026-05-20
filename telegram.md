@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 00:54
+---
+
+## Dirty_Kids — post 389839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخست وزیر پاکستان:
+بتخمم اصلا جنگ کنید
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389838
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389838_1779312268.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جان‌فداست ولی تو عروسیش ماسک میزنه شناسایی نشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+
+قرار بود فردا به ایران حمله کنم ولی قراره تعمیرکار بیاد برای سرویس کولر
+ملانیا خونه تنهاس، باید باشم حتما
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389836
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389836_1779312269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۷۰۰ هزار کیلومتر کار کرده
+۲۲ میلیارد تومن قیمت میخوره یعنی ۱۲۵ هزار دلار
+صفر خشک ۲۰۲۶ این ۸۸ هزاردلاره
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 23:10
 ---
 
