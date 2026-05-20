@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 02:20
+---
+
+## Dirty_Kids — post 389855
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389855_1779317454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389854
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389854_1779317454.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A30
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389853
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389853_1779317455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این خبر احمدی‌نژاد یه چیزی تو مایه‌های ماجرای مهران مدیری بود که با قایق رفته بود دنبال علی کریمی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389851
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه چیزی‌ نمونده که جوون ایرانی تجربه نکرده باشه جز یک چیز. شادی. شادی رو هنوز تجربه نکردیم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389850
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389850_1779317455.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ازدواج آسان
+
+اینا اصلا موشعلی و مقوایی اینارو یادشون رفته
+افتادن به مقاومت جنسی.
+فکر کن هر شب میرن پرچم تکون میدن واسه پایین تنه.🤣🤣
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389849
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389849_1779317457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مود: 🦦
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389848
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389848_1779317458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق مطالعات جدید کسایی که دائم از بقیه غلط املایی میگیرن، دچار اختلال روانی ان.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389847
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389847_1779317458.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این صحبت ترامپ ارزش داره چندین بار ببینیش:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389846
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389846_1779317460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرانجام بخت زیبای خفته‌ی عرزشی‌ها هم باز شد @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389845
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389845_1779317460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرانجام بخت زیبای خفته‌ی عرزشی‌ها هم باز شد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاصل خالی گذاشتن سکوهای ورزشگاه جام جهانی قطر شد:
+حضور ‎#پرستوهای_رژیم به اسم «نماینده ی ملت ایران» با هد بند و پرچم!
+آخوندها هم به دنیا گفتند: ببینید مردم ایران چقدر آزادند و حامی و دوستدار حکومت میباشند!!
+
+تبلیغات جمهوری اسلامی در جام جهانی قطر دقیقا ۴ سال جنایت و فلاکت و شکنجه و غارت ایران و همچنین ۴۰ هزار کشته فقط در ۲ روز واسمون هزینه ایجاد کرد!!
+این بار فریب نخوریم و با برنامه پیش بریم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389840
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389840_1779317461.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چالش "دوربین‌به‌کون" هم تازه راه افتاده
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 00:54
 ---
 
