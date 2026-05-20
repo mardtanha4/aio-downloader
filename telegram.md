@@ -7,6 +7,236 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 17:33
+---
+
+## exoupdate_news — post 60595
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60595_1779285834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] PREVIEW SUHO B-day Party 'To My First Love'
+
+Para penggemar mendapatkan 3 photocard ini saat memasuki lokasi acara hari ini, termasuk photocard Junmyeon versi bayi dan photocard Junmyeon versi pelajar! Hadiah yang sangat lucu 🥺
+
+
+cr. babyrabbit_suho, SUHOpixel
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] FOTO-FOTO SEHUN DAN JUNMYEON DI GYM DARI TAHUN 2015 YANG BELUM PERNAH DIRILIS‼️😭😳
+
+@.xunhuas
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389807
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قدیم فقط طالبی و خربزه و هندونه داشتیم
+این ملون و شاه‌پسند و جانان یهو از کجا پیداشون شد حاجی؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389806
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389806_1779285836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای پپ گواردیولا، مربی با دانش و مادرقحبه‌ی چپولِ جزامی!
+همین که قهرمان نشدی و بعد از کلی هزینه نجومی مجبوری سیتی رو با ناکامی ترک کنی، برای من یک دنیا ارزش داره.
+
+با آرزوی شکست های بیشتر و ناکامی های بزرگتر برای جنابعالی.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389805
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389805_1779285836.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه احیانا فیفا نزاشت پرچم بزرگ ببرید
+یه چیزی هست بنام طرح موزاییکی
+
+هرکی یه تیکه کاغذ با خوش میبره و در نهایت این شیر و خورشید بزرگ میتونید درست کنید و نمایش بدید
+
+حالا نه در این حد واسه یه جایگاه استادیوم اسونه، فقط هماهنگی میخواد بشینید از الان درست کنید
+
+سپاس گزارم از توجه شما
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کولر آبی بوی امتحان نهایی میده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389803
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389803_1779285836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در سالگرد آنگوزمان شدن شهیدِ خدمت رئیسی بد نیست این ویدئو رو دوباره ببینیم…
+
+راستی کسی از حلقوم رهبری خبری داره؟ اتفاقی براش افتاده؟ 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389802
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389802_1779285838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اونی خبر کسشر رهبر شدن احمدی‌نژا نیویورک تایمز داده بیرون
+
+دیگه فرناز فصیحی و ارباباش وقتی یه خبر رو تولید میکنن قطعا درسته. 😂😂
+
+میگن با موشک زدنش تا اونایی که اسیر کردنش تو خونه بمیرن
+احمدی نژادم قهر کرده چرا با موشک منو محکم زدید نزدیک بود خودمم بمیرم برای همین دیگه رهبر نمیشم، اصن قهرم :)))))
+
+اصن آزادش کردنش بعد میخواست چه گهی بخوری مثل رمبو تکی سپاه شکست بده 😂😂
+
+سپاه تروریستی پاسداران، حامی اصلی تریتا پارسی، سخت مشغول کاره تا تبلیغاتش رو توسط فرناز فصیحی در نیویورک تایمز منتشر کنه.😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23629
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23629_1779285838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #HEARTS2HEARTS INSTAGRAM UPDATE
+
+Hidden PIECE 🧩
+
+#Hearts2Hearts #하츠투하츠 #H2H #세종대
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23622
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23622_1779285841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #HEARTS2HEARTS INSTAGRAM UPDATE
+
+Hidden PIECE 🧩
+
+#Hearts2Hearts #하츠투하츠 #H2H #세종대
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23620
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #HEARTS2HEARTS TWITTER UPDATE
+
+Hearts2Hearts at 세종대❤️
+
+#Hearts2Hearts #하츠투하츠 #H2H
+#세종대
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23616
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23616_1779285843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[VIDEO]
+
+#HEARTS2HEARTS at Sejong University Festival.
+
+Cr. H2H_INA & 3toile_S2
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #A_NA WEVERSE UPDATE
+
+It was so fun, Sejong University sisters and brothers 😚😚
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23610
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23610_1779285845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #YE_ON WEVERSE LOCKED
+
+S2U (Hachu) I love you🤍
+
+🗝 : 520
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #STELLA WEVERSE UPDATE
+
+🖤🔥
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #CARMEN WEVERSE UPDATE
+
+Sejong University is the best~~!!!
+Today was so much fun!! >_<
+Thank you for coming to see us🥹🥹🥹
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 14:51
 ---
 
