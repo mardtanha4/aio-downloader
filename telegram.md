@@ -7,6 +7,322 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 20:58
+---
+
+## exoupdate_news — post 60600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] SUHO BUBBLE UPDATE 🐰🫧 *latepost 02:00 KST “Nanti sore” “Sampai jumpa dalam keadaan sehat walafiat!!!” “ㅋㅋMaksudmu pesta ulang tahun…?” “Aku tadinya tidak mau, tapi ㅜㅅㅜㅋㅋㅋ” “Karena kamu mau, aku akan melakukannya…” “🤧” “ㅋㅋSelamat tidur”…
+</div>
+
+## exoupdate_news — post 60597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] EXO OFFICIAL SNS UPDATE #SUHO
+
+" To. My First Love 🐰💌 "
+
+https://www.instagram.com/p/DYkDrzHGlfF/?igsh=NG40ZXMxMGk2MHZo
+
+https://x.com/i/status/2057102167870492810
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60596
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60596_1779298115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] EXO OFFICIAL SNS UPDATE #SUHO
+
+"RUDE!"
+
+youtu.be/fb6KpvxKomw
+
+https://x.com/i/status/2057091848221630866
+
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش مصنوعی بله:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389825
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389825_1779298116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با اون برنامه اى كه با هلال احمر درآورد و اون چاپلوسى كه براى ج.ا كرد، انتظار ديگه اى نميرفت, يجورى حرف ميزنه انگار تويه دادگاه عادلانه محاكمه شده نه دادگاه ج.ا
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389824
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389824_1779298117.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طنز ماجرا اینجاست که یک حرومزاده به اسم محسن سازگارا دست راست خمینی و موسس سپاه میگه نه به پهلوی و از دموکراسی بگو (:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389823
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389823" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389822
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389822_1779298118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنده ننه توعه هرشب تو خیابون صیغه میشه
+
+ذهن مریض تو که سیو کردی اینارو فقط که ناخواسته باعث شادی و خاطره بازی ما میشه
+
+
+[شبی که ابرام رییسی سقط شد]
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389817
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389817_1779298119.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+الان ایران نیروی دریایی، نیروی هوایی و همه چیزشو از دست داده تقریبا.
+تنها سوال اینه که بریم کار رو تموم کنیم یا توافق رو امضا میکنن؟
+ببینیم چه اتفاقی میفته.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389816
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389816_1779298120.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اجرای آهنگ "Delalım" توسط ایلکا حسابی سر و صدا به پا کرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389815
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389815_1779298122.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+G30
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#فوری قیمت نفت آمریکا بیش از ۷٪ کاهش یافته و به ۹۷ دلار در هر بشکه رسیده است پس از آنکه رئیس‌جمهور ترامپ گفت آمریکا در «مراحل نهایی» مذاکرات با ایران است. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389813
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389813_1779298123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#فوری
+
+قیمت نفت آمریکا بیش از ۷٪ کاهش یافته و به ۹۷ دلار در هر بشکه رسیده است پس از آنکه رئیس‌جمهور ترامپ گفت آمریکا در «مراحل نهایی» مذاکرات با ایران است.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389812
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389812_1779298123.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصباح: اطاعت از احمدی‌نژاد اطاعت از خداست.🙂 پ‌ن: جنگ قدرت یا چی؟ 😉 @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389811
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389811_1779298124.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصباح: اطاعت از احمدی‌نژاد اطاعت از خداست.🙂
+
+پ‌ن: جنگ قدرت یا چی؟ 😉
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389810
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389810_1779298124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+“من الان تو اسرائیل ۹۹٪ محبوبیت دارم. می‌تونم برای نخست‌وزیری کاندیدا بشم. شاید بعد از اینکه [ریاست جمهوریم تموم شد]، برم اسرائیل و برای نخست‌وزیری نامزد بشم!”
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389809
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389809_1779298125.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرزشیا زدن به سیم آخر
+چند روز دیگه رقص میله هم برامون میرن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389808
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389808_1779298126.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت رسمی تلگرام داخل اپلیکیشن ایکس، تو یه اقدام خیلی منطقی عکس مارک زاکربرگ (مالک فیسبوک و اینستاگرام) رو پست کرده نوشته:
+
+من میتونم از متاورس (جهان مجازی) اینو سفارش بدم؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #IAN WEVERSE UPDATE
+
+Sejong University 🔥🔥
+Thank you so much to the sisters and brothers who had fun even though it was raining today 🫶🏻
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #IAN WEVERSE UPDATE
+
+Sejong University 🔥🔥
+Thank you so much to the sisters and brothers who had fun even though it was raining today 🫶🏻
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 17:33
 ---
 
