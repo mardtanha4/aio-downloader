@@ -7,6 +7,357 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 14:51
+---
+
+## exoupdate_news — post 60591
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60591_1779276063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] waterbomb_seoul SNS UPDATE #KAI
+
+KAI bertemu WATERBOMB. Tak perlu penjelasan!
+Penampilan yang memukau, langsung menarik perhatian!
+Sensasi dopamin terbaik Anda musim panas ini! Segera datang ke Busan!
+
+TIM PINK | 8.8 (Sabtu)
+
+WATERBOMB BUSAN 2026
+Tanggal: 8 Agustus (Sabtu), 2026
+Tiket: Klik tautan di bio @waterbomb_official
+Catatan Penting
+
+* Setelah tiket di tingkatan saat ini habis terjual, tingkatan berikutnya akan dibuka secara otomatis tanpa pemberitahuan sebelumnya, dan harga akan naik.
+
+* Maksimal 4 tiket per orang.
+
+https://www.instagram.com/p/DYjfzglkdF8/?igsh=MWFtaHEzMHhtbjJ1cw==
+
+https://x.com/i/status/2057023391010591027
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60589
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60589_1779276066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] real__pcy INSTAGRAM STORY UPDATE
+
+
+
+https://www.instagram.com/stories/real__pcy/3900981441358815164?utm_source=ig_story_item_share&igsh=Z3dpOHB0bjN6Yjg4
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60588
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60588_1779276069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] EXO OFFICIAL SNS UPDATE #CHANYEOL
+
+Gunung Gwanak, yey~! Semua orang bilang mereka akan mendapatkan energi positif, jadi aku pun mendaki sendiri...🥴 [Chanyeol Theater: Edisi Mendaki Gunung Gwanak]
+
+youtu.be/cMApolrskeg
+
+https://x.com/i/status/2057031501083181113
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60585
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60585_1779276071.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] PREVIEW #CHANYEOL at Rising Eagles Full Match 6
+
+
+cr. Ace_BBH
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389801
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389801_1779276073.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یک بسته کیسه فریزر رولی
+یک میلیون و صد و هشتاد وپنج !
+۲۹ اردیبهشت ۱۴۰۵
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389800
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389800" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 اپلیکیشن اندروید بدون فیلتر ریتزوبت
+
+➖➖➖➖➖
+
+🔹 ثبت نام آسان 
+✅
+🔹 رابط کاربری بسیار راحت و سریع 
+✅
+🔹 درگاه پرداخت کارت به کارت 
+✅
+🔹 درگاه پرداخت دلاری سریع 
+✅
+🔹 بونوس ۱۰۰ درصدی اولین واریز 
+✅
+🔹 بونوس ۱۰۰ درصدی واریز یکشنبه ها 
+✅
+
+➖➖➖➖➖
+🌐 https://RitzoBet.com
+
+⚡️ @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 389799
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389799_1779276073.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ برای #شرطبندی های فوتبال از سایت معتبر و بین المللی استفاده کنید ✅
+
+
+🇩🇪 فرایبورگ 
+🔢
+🔢 
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 استون ویلا
+
+سایت #ریتزوبت ، چهار سال هستش داخل ایران فعالیت میکنه 
+✅
+
+لایسنس بین المللی داره ، روش های شارژ و برداشت متنوع داره و بونوس 100% ورزشی و کش بک های جذاب
+💎
+
+
+⏪ اپلیکیشن بدون فیلتر ریتزوبت 
+📱
+⏩
+R30
+
+✅ لینک بدون‌ فیلتر ریتزوبت
+🤣
+
+🆔 @RitzoBet_ir 
+🇮🇷
+</div>
+
+## Dirty_Kids — post 389798
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389798_1779276074.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه آمریکایی الحره: میان نیروهای ارتش و سپاه توی ایران درگیری داخلی و مسلحانه رخ داده.
+
+داستان از اینجا شروع میشه که سازمان اطلاعات سپاه، افسران و نیروهای ارتش رو از پایگاه های مشترک نظامی اخراج و اونارو به خیانت و انتقال اطلاعات به اسرائیل و آمریکا متهم کرد!
+این اتهامات شامل لو دادن محل استقرار موشک‌های بالستیک و پهپادهای حکومت بوده.
+حالا سپاه و ارتش سر این داستان باهم به مشکل خوردن و درگیر شدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389797
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389797_1779276074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلم وایرال شده از آمریکا که حامیان فلسطین و خامنه‌ای تجمع کردن و یه ایرانی میره اون وسط و یه تنه همشونو میگاد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389796
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389796_1779276075.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏من همون خرسیم که رئیسی رو خورد ولی الان بحث بحثِ وطنه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389795
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389795_1779276076.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش مصنوعیه؟؟؟😂
+یه نفر تو روسیه شبیه خامنه‌ای پیدا شده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389794
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389794_1779276077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه... کافیه بادبان ها رو بکشی تا
+
+
+⚫️با بالاترین کیفیت ممکن
+⚡️ 
+
+⚫️100 هزار تومان شارژ هدیه 
+🎁
+
+⚫️پایین ترین قیمت گیگی 250
+🌐 
+
+⚫️و ارائه پورسانت %10 در ازای هر معرفی
+💼
+
+بتونی یه اتصال پایدار با پشتیبانی 24 ساعته داشته باشی
+🚀
+
+بادبان راهتو باز می‌کنه
+⛵️
+
+R30
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389793
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389793_1779276078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیلیوم خارج از مطب بو گوز میده؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389792
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389792_1779276078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در قطر، کشور دوست و مثلا برادر سیاسی‌مذهبی‌تون، جلو تعداد محدود ایرانی هم هیچ غلطی نتونستید بکنید؛ آمریکای شمالی که دیگه جای صدها هزار ایرانیِ ملی‌گراست. ✌️👑
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23584
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23584_1779276080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #HEARTS2HEARTS DOUYIN UPDATE
+
+I 🩵 you, exclusively limited to S2Uᰔᩚ
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #HEARTS2HEARTS INSTAGRAM UPDATE
+
+this? yes that? totally yes
+
+#Hearts2Hearts #하츠투하츠 #H2H
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #HEARTS2HEARTS INSTAGRAM UPDATE
+
+this? yes that? totally yes
+
+#Hearts2Hearts #하츠투하츠 #H2H
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] @asea_official TWITTER UPDATE
+
+ASEA 2026 DAY 2 관객뷰CAM📹
+#하츠투하츠 - #FOCUS
+
+더 멋진 시상식으로 다시 만나요!👋
+
+🏆𝐀𝐒𝐄𝐀 𝟐𝟎𝟐𝟔🏆
+📅 2026.05.16(토) - 17(일)
+📍 BELLUNA DOME
+
+#ASEA #ASEA2026
+#AsiaStarEntertainerAwards
+#하츠투하츠 #Hearts2Hearts @Hearts2Hearts
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23566
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23566_1779276084.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] @asea_official TWITTER UPDATE
+
+2026 DAY 2 Audience View CAM 📹
+#하츠투하츠 #에이티즈 모시모시 챌린지💝
+
+Let’s meet again at an even more amazing award show! 👋
+
+🏆𝐀𝐒𝐄𝐀 𝟐𝟎𝟐𝟔🏆
+📅 2026.05.16(토) - 17(일)
+📍 BELLUNA DOME
+
+#ASEA #ASEA2026
+#AsiaStarEntertainerAwards
+#하츠투하츠 #Hearts2Hearts @Hearts2Hearts
+#에이티즈 #ATEEZ @ATEEZofficial
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 11:36
 ---
 
