@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 11:36
+---
+
+## exoupdate_news — post 60584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] SUHO BUBBLE UPDATE 🐰🫧
+*latepost
+
+02:00 KST
+“Nanti sore”
+“Sampai jumpa dalam keadaan sehat walafiat!!!”
+“ㅋㅋMaksudmu pesta ulang tahun…?”
+“Aku tadinya tidak mau, tapi ㅜㅅㅜㅋㅋㅋ”
+“Karena kamu mau, aku akan melakukannya…”
+“🤧”
+“ㅋㅋSelamat tidur”
+“🧘🏻”
+“Kedamaian batin”
+“Aku akan berusaha sebaik mungkin!”
+“🏃”
+
+engtrans: SUHObubble
+*@exoljjang_ina*
+</div>
+
+## Dirty_Kids — post 389791
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389791_1779264409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏به این میگن عقب‌نشینی استراتژیک.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389790
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی دلم میخواد تو مترو با یه دختر دوست بشم، دیت اول با ماشینم برم دنبالش پشماش بریزه اون لحظه که تیبا ۲ رو میبینه و بفهمه هرکی سوار مترو میشه فقیر نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389789
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389789_1779264409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرزند ایران و کشته شده در راه وطن #امیرحسین_الوند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389788
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389788_1779264410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عارف‌ عزیز، آرسنال، تیم محبوبت قهرمان شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389787
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389787_1779264410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاصل جفتگیری قالیباف و میرسلیم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hearts2HeartsUpdateSM — post 23557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260520] #IAN WEVERSE UPDATE
+
+Konkuk University 💚🔥
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 08:07
 ---
 
