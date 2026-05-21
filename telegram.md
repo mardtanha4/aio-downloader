@@ -7,6 +7,314 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 08:13
+---
+
+## exoupdate_news — post 60612
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60612_1779338610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] PREVIEW SUHO B-day Party 'To My First Love'
+
+"RUDE!" Challenge 😍😆
+
+cr.xopinkpink
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60611
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60611_1779338613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260520] PREVIEW SUHO B-day Party 'To My First Love'
+
+"Beautiful"
+
+*Suho memakai payung, sama seperti saat penampilan solonya menyanyikan 'Beautiful' di EXO Planet #1: The Lost Planet 😍
+
+cr.xopinkpink
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60610
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260521] SEHUN BUBBLE UPDATE 🐥🫧
+
+08:26 KST
+“Semoga harimu menyenangkan, go go sing (ayo)!”
+
+engtrans: milkteus
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60609
+
+<div align="center">
+  <img src="telegram/content/exoupdate_news_60609_1779338617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260521] SUHO BUBBLE UPDATE 🐰🫧 *latepost 01:57 “Jika kamu menonton video ‘RUDE*!’ di saluran YouTube EXO sebelum tidur, kamu dijamin akan tidur nyenyak” “Selamat malam” (dengan imut) [*Dia menulis 물회 (mulhae/sup ikan mentah) yang terdengar mirip…
+</div>
+
+## exoupdate_news — post 60608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260521] SUHO BUBBLE UPDATE 🐰🫧 *latepost 01:12 KST “Apakah semua orang sampai di rumah dengan selamat?” “Serius, kenangan yang luar biasaㅋㅋ” "Mengadakan pesta ulang tahun pertamaku dalam 14 tahun sangat menyenangkan! ㅋㅋ Aku mencoba untuk tetap…
+</div>
+
+## exoupdate_news — post 60607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260521] SUHO BUBBLE UPDATE 🐰🫧
+*latepost
+
+01:12 KST
+“Apakah semua orang sampai di rumah dengan selamat?”
+“Serius, kenangan yang luar biasaㅋㅋ”
+"Mengadakan pesta ulang tahun pertamaku dalam 14 tahun sangat menyenangkan!
+
+ㅋㅋ
+
+Aku mencoba untuk tetap santai, tapi aku tetap merasa harus melakukan lebih banyak lagi untuk EXO-L yang datang.. Baik itu konser, fan meeting, acara, atau festival, setiap kali aku berada di atas panggung, aku selalu merasakan hal yang sama. Itulah mengapa aku tidak bisa mempersiapkan pesta ulang tahun dengan santai tanpa tekanan. Sejujurnya, aku ingin mempersiapkan lebih banyak lagi, tetapi karena waktu, kondisiku.. dan berbagai keadaan, ada beberapa penyesalan tetapi tetap memuaskan!
+
+Juga, targetku adalah pertunjukan 100 menit, tetapi akhirnya aku mengisi 120 menit.. itu sebuah kesalahan..
+
+Pokoknya, aku bahagia! EXO-L juga terlihat bahagia! Maka itu sudah cukup!!"
+
+engtrans: SUHObubble
+*@exoljjang_ina*
+</div>
+
+## exoupdate_news — post 60601
+
+<div align="center">
+  <a href="telegram/content/exoupdate_news_60601_1779338619.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[UPDATE] [260521] SUHO BUBBLE UPDATE 🐰🫧
+*latepost
+
+00:43 KST
+[video]
+“🐣”
+"📸"
+
+00:47 KST
+"📸 x2" (Foto Suho bayi dan Foto saat dia remaja)
+"👼"
+
+01:08 KST
+"📸" (Foto saat SMA)
+“Pakaian yang aku pakai hari ini persis seperti ini”
+
+01:11 KST
+"📸" (Foto bersama Sehun tahun 2015)
+“🧘🏻”
+“Itu saja untuk hari ini..”
+
+engtrans: SUHObubble
+*@exoljjang_ina*
+</div>
+
+## Hearts2HeartsUpdateSM — post 23683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#JUUN in a recent interview with ModelPress. — Please tell us about the details you focus on in the dance parts as well. 👾: From the very first stage of practice, I think it’s important to find the angles that make your movements look cool when dancing.…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23682
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23682_1779338623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#JUUN in a recent interview with ModelPress.
+
+— Please tell us about the details you focus on in the dance parts as well.
+
+👾: From the very first stage of practice, I think it’s important to find the angles that make your movements look cool when dancing. By finding those angles and gradually correcting and improving them, I think you can dance better.
+
+— For ModelPress readers who are struggling with worries, please tell us your way of overcoming "anger" and "sadness," as well as an episode where you overcame those feelings.
+
+👾: When I was a trainee, I had to memorize a lot of choreography during dance lessons, so the pressure was really heavy. There were so many things I had to do that both my mind and body became exhausted, and there were times when I felt really sad. But no matter how late it got, I still worked hard at practicing.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#STELLA in a recent interview with ModelPress. — Since “RUDE!” is popular around the world, please share some tips on how to cover the spoken-line part well. 🧁: Of course I’d love people to pay attention to the part I’m in charge of, but I think the key…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23680
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23680_1779338624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#STELLA in a recent interview with ModelPress.
+
+— Since “RUDE!” is popular around the world, please share some tips on how to cover the spoken-line part well.
+
+🧁: Of course I’d love people to pay attention to the part I’m in charge of, but I think the key point is the performance of all eight members together and the message of "believing in yourself." For the spoken-line part, after understanding the meaning of the lyrics, I try to deliver it with a slightly playful feeling while also expressing a girl’s strength well!
+
+— Please tell us your favorite Japanese foods and places.
+
+🧁: First of all, my favorite foods are sushi and Japanese desserts in general! Especially roll cakes, strawberry sandwiches, and pudding! The only place I’ve visited during my break is Harajuku, but I heard it’s a hot place for teenagers, and I really like Harajuku.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#YUHA in a recent interview with ModelPress. — Which Hearts2Hearts song would you especially recommend? 🎀: I recommend "Flutter," which is included in our mini album. I especially love the lyric, "What should I do? Now all I can see is you, my whole world…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23678
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23678_1779338626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#YUHA in a recent interview with ModelPress.
+
+— Which Hearts2Hearts song would you especially recommend?
+
+🎀: I recommend "Flutter," which is included in our mini album. I especially love the lyric, "What should I do? Now all I can see is you, my whole world has changed."
+
+— Please tell us about the most memorable experience from your activities in Japan so far.
+
+🎀: The atmosphere at "SMTOWN LIVE" held at Tokyo Dome was incredible, so it made me think that someday I’d love for us to hold our own concert there too.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#CARMEN in a recent interview with ModelPress. — Which Hearts2Hearts song would you especially recommend? 🌴: I want to recommend all of them, but if I had to choose one, it would be "Blue Moon." It’s a very calm and emotional ballad, and it’s such a warm…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23676
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23676_1779338627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#CARMEN in a recent interview with ModelPress.
+
+— Which Hearts2Hearts song would you especially recommend?
+
+🌴: I want to recommend all of them, but if I had to choose one, it would be "Blue Moon." It’s a very calm and emotional ballad, and it’s such a warm song that comforts your heart while listening to it.
+
+— Please share the “secret to achieving dreams” for ModelPress readers who are chasing their dreams.
+
+🌴: I think it’s important to always believe in yourself, never give up, and continue to keep a positive mindset. We also hope that once we have more songs in the future, we’ll be able to go on a world tour and hold a concert at Tokyo Dome someday.
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#JIWOO in a recent interview with ModelPress — Please introduce the charming points of Hearts2Hearts to people in Japan. 🍓: The biggest charm is the synergy created when all eight members, each with their own different charms, come together as one. — Please…
+</div>
+
+## Hearts2HeartsUpdateSM — post 23674
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23674_1779338628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#JIWOO in a recent interview with ModelPress
+
+— Please introduce the charming points of Hearts2Hearts to people in Japan.
+
+🍓: The biggest charm is the synergy created when all eight members, each with their own different charms, come together as one.
+
+— Please tell us what you worked hard on while learning Japanese.
+
+🍓: When speaking, I tried my best to not be afraid of saying things out loud and to keep the mindset of "just try speaking first." I made an effort to speak without being afraid of making mistakes.
+I also searched for and watched a lot of Japanese dramas and YouTube videos, and whenever I came across words or expressions I didn’t know, I immediately looked them up and studied them on the spot. The YouTube channel I especially watched was "TomoTomo," a Korean-Japanese couple channel. Since they often have everyday conversations, I studied Japanese while watching them!
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[PHOTO]
+
+#HEARTS2HEARTS in a recent interview with ModelPress.
+
+“What are your memories in Japan and what would you like to achieve there? 💭”
+
+mdpr.jp/interview/detail/4772460
+
+#ハトゥハ @Hearts2HeartsJP
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23669
+
+<div align="center">
+  <a href="telegram/content/Hearts2HeartsUpdateSM_23669_1779338629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260521] #HEARTS2HEARTS SNS UPDATE
+
+hiii
+
+#Hearts2Hearts #하츠투하츠 #CARMEN #YUHA #YE_ON
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23668
+
+<div align="center">
+  <img src="telegram/content/Hearts2HeartsUpdateSM_23668_1779338632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[INFO]
+
+#CARMEN Changed Weverse Nickname to 멘멘핑😚
+(Menmen-ping😚)
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+## Hearts2HeartsUpdateSM — post 23660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+[260521] #JUUN WEVERSE UPDATE
+
+Thank you for having fun with us in the rain togetherrr ☔
+Please invite us to Sejong University again!
+I also made a fun Set-log from today
+
+🐝 [@Hearts2HeartsUpdateSM]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 03:34
 ---
 
